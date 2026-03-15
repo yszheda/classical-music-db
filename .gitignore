@@ -25,3 +25,7 @@ npm-debug.log*
 *.jpg
 *.png
 *.jpeg
+*.flac
+*.cue
+*.mp3
+*.wav
