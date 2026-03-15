@@ -1,0 +1,48 @@
+# ⚠️ STRICT MODE: Only track Markdown files
+# Use this .gitignore instead if you want Git to ignore EVERYTHING except .md
+
+# Ignore everything by default
+*
+
+# But track Markdown files
+!*.md
+
+# And Obsidian config
+!.obsidian/
+!.gitignore
+!scripts/
+
+# Exclude large/binary files explicitly
+*.jpg
+*.png
+*.jpeg
+*.gif
+*.bmp
+*.svg
+*.flac
+*.wav
+*.mp3
+*.ogg
+*.cue
+*.iso
+*.bin
+
+# System files
+.DS_Store
+Thumbs.db
+desktop.ini
+*.lnk
+
+# IDE
+.vscode/
+.idea/
+*.swp
+*.swo
+
+# Logs
+*.log
+npm-debug.log*
+
+# Environment
+.env
+.env.local
