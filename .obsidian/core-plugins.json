@@ -1,0 +1,14 @@
+{
+  "file-explorer": true,
+  "search": true,
+  "graph": true,
+  "backlink": true,
+  "outgoing-link": true,
+  "tag-pane": true,
+  "page-preview": true,
+  "daily-notes": true,
+  "random-note": true,
+  "outline": true,
+  "word-count": true,
+  "file-recovery": true
+}

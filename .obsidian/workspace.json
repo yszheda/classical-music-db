@@ -1,0 +1,70 @@
+{
+  "main": {
+    "id": "main",
+    "type": "split",
+    "children": [
+      {
+        "id": "left-sidebar",
+        "type": "split",
+        "direction": "vertical",
+        "children": [
+          {
+            "id": "file-explorer",
+            "type": "file-explorer",
+            "state": {
+              "sortOrder": "alphabetical"
+            }
+          },
+          {
+            "id": "search",
+            "type": "search",
+            "state": {}
+          }
+        ]
+      },
+      {
+        "id": "main-content",
+        "type": "stack",
+        "children": []
+      },
+      {
+        "id": "right-sidebar",
+        "type": "split",
+        "direction": "vertical",
+        "children": [
+          {
+            "id": "backlink",
+            "type": "backlink",
+            "state": {}
+          },
+          {
+            "id": "tag-pane",
+            "type": "tag-pane",
+            "state": {}
+          }
+        ]
+      }
+    ]
+  },
+  "left": {
+    "id": "left",
+    "type": "split",
+    "direction": "vertical",
+    "children": [],
+    "currentTab": 0
+  },
+  "right": {
+    "id": "right",
+    "type": "split",
+    "direction": "vertical",
+    "children": [],
+    "currentTab": 0
+  },
+  "left-ribbon": {
+    "hiddenItems": {
+      "graph:Open graph view": false,
+      "daily-notes:Open today's daily note": false,
+      "random-note:Open random note": false
+    }
+  }
+}

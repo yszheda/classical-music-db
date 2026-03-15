@@ -1,0 +1,15 @@
+{
+  "alwaysUpdateLinks": true,
+  "newFileLocation": "current",
+  "useMarkdownLinks": true,
+  "tabSize": 2,
+  "showLineNumber": true,
+  "livePreview": true,
+  "readableLineLength": false,
+  "strictLineBreaks": false,
+  "showViewHeader": true,
+  "nativeMenus": true,
+  "mobileQuickRibbonItem": true,
+  "mobileToolbarCommands": [],
+  "mobileDrawers": []
+}
