@@ -1,0 +1,568 @@
+# Booklet完整原文
+
+## 封面
+
+```
+DECCA
+Rachmaninoff
+Vespers
+Liturgy of St John Chrysostom
+Nikolai Korniev
+St Petersburg Chamber Choir
+2CD
+DUO
+```
+
+## 封底
+
+```
+Sergei Rachmaninoff (1873-1943)
+
+Disc 1:
+Vespers, op.37
+All-Night Vigil · Ganznächtliche Vigil · Vêpres
+Olga Borodina mezzo-soprano
+Vladimir Moztowoy tenor
+
+Disc 2:
+Liturgy of St John Chrysostom, op.31
+Liturgie des Heiligen Johannes Chrysostomus
+Liturgie de saint Jean-Chrysostome
+Alexander Ranne tenor (Protoyerey)
+Sergey Tsipcalo baritone (Diakon)
+Natalia Korneva soprano
+
+St Petersburg Chamber Choir
+Nikolai Korniev (Conductor)
+
+475 227-2
+DM 2
+DDD
+Total playing-time: 2:07'37"
+© 1994, 1995 Universal International Music BV
+A UNIVERSAL MUSIC COMPANY
+www.deccaclassics.com
+Sung texts enclosed - Brochure incluse - Mit Beiheft
+© 2003 Decca Classics
+CD is made in Germany
+Printed in Germany/Imprimé en Allemagne. Made in Germany
+DECCA
+Barcode: 0 28947 52272 0
+```
+
+---
+
+## 内页介绍文章
+
+Rachmaninoff's magnificent contributions to the church repertoire raise a question of stylistic appropriateness, for his music for church use has had to withstand the ecclesiastical charge of over-elaboration. (It is not for nothing that his *Vespers* have become something of a concert "set piece" in the West.) As a composer who found himself encouraged by the example of Tchaikovsky, Rachmaninov was further stimulated in his contributions to the Russian orthodox repertoire by the reclamation that was taking place in Russian church music. In this respect his setting of the *Vespers* five years later is undoubtedly the grander and more richly composed, the earlier *Liturgy* is a worthy successor to Tchaikovsky's pathfinding work and, as with its predecessor, shines with that same sincerity of feeling which the text could inspire in a sensibility that was not entirely bound to the church. The setting of the *Vespers* in fifteen numbers (nine of which make use of ancient chant) is perhaps the crowning jewel of the present collection, and its "choral orchestration" glows in the darkness of all-night vigil operatic intensity.
+
+Les magnifiques contributions de Rachmaninov au répertoire religieux posent la question de l'adéquation stylistique, car l'église a reproché à sa musique d'être excessivement élaborée. (Ce n'est pas pour rien que ses *Vêpres* sont devenues une "œuvre de concert" en Occident.) En tant que compositeur, il se trouva encouragé par l'exemple de Tchaïkovsky: mais Rachmaninov fut également stimulé dans ses contributions au répertoire orthodoxe russe par les travaux musicologiques sur la musique d'église. À cet égard, sa *Liturgie* (1910) est particulièrement redevable à l'influence du compositeur /musicologue/chef de chœur Alexandre Kastalski (1856-1926), auprès de qui il chercha conseil pendant qu'il travaillait à l'œuvre. Bien que les *Vêpres* qu'il écrivit cinq ans plus tard soient incontestablement plus grandioses et plus riches dans leur écriture, la *Liturgie* est le digne successeur de l'œuvre novatrice de Tchaïkovsky et, comme son prédécesseur, rayonne de cette même sincérité de sentiment que le texte pouvait inspirer à une sensibilité qui n'était pas étroitement liée à l'église. Les quinze numéros des *Vêpres* (dont neuf utilisent des chants anciens) sont peut-être le plus beau fleuron de la présente anthologie, et leur "orchestration chorale" luit dans l'obscurité de la vigile de la nuit entière avec une intensité toute opératique.
+
+Die großartigen Beiträge Rachmaninovs zum kirchlichen Repertoire werfen die Frage nach stilistischer Angemessenheit auf, da seine Musik für den kirchlichen Gebrauch der kirchlichen Vorwurf übermaßiger Küstlichkeit ausgesetzt wurde. (Nicht umsonst wurde im Westen seine *Vesper* zu einem "Publikumserrenner" innerhalb des Konzertlebens.) Als ein Komponist, der durch das Beispiel Tschaikovskys ermuntert wurde, fand Rachmaninov zu seinen Beiträgen zum orthodoxen Repertoire außerdem durch die gelehrten Bemühungen zur Rückbesinnung angenannten russischen Kirchenmusik unternommenen Arbeiten. In dieser Hinsicht war er für seine *Vesper* (1910) insbesondere den Anregungen des Komponisten/Musikwissenschaftlers Alexander Kastalsky (1856-1926) zu Dank verpflichtet, von dem er gelernt hat.
+
+Die Vertonung der VESPER in 15 Nummern (von denen neun auf dem alten Gesang basieren) ist möglicherweise das krönende Juwel der vorliegenden Zusammenstellung, und ihre "Chor-Orchestrierung" leuchtet mit offenbarer Intensität in der Dunkelheit der sich über die ganze Nacht erstreckenden Vigil.
+
+---
+
+## CD 1 - Vespers, Op. 37 (All-Night Vigil)
+
+### 1. Priidite, poklonimsya
+**Original Slavonic**
+```
+Amin.
+Priidite, poklonimsya Tsarevi nashemu Bogu.
+Priidite, poklonimsya i pripadyom Khristu
+Tsarevi Tsarevi i Bogu nashemu.
+Priidite, poklonimsya i pripadyom Samomu Khristu Tsarevi i Bogu nashemu. Amen.
+```
+
+**English translation**
+```
+1 O come, let us worship
+Amen.
+O come, let us worship God our King.
+O come, let us worship and fall down before Christ, our King and our God.
+O come, let us worship and fall down before Christ Himself, our King and our God. Amen.
+```
+
+### 2. Blagoslovi, dushe moya
+**Original Slavonic**
+```
+Amin.
+Blagoslovi, dushe moya, Gospoda.
+Blagosloven yesi, Gospodi. Gospodi Bozhe moy, vozvelichilsya yesi zelo. Blagosloven yesi, Gospodi. Vo spovedaniye i v yechalepotu oblekisya ya. Spoda sredi zhevenka vodi. Goryan stanut vodi. Tvoya pravda kak gory ne besednogo. Spaseniya premudrosti svoril ti. Amen.
+```
+
+**English translation**
+```
+2 Bless the Lord, o my soul
+Amen.
+Bless the Lord, o my soul. Blessed art Thou, o Lord. Thou art very great. Blessed art Thou, o Lord. Thou art clothed with honour and majesty. Blessed art Thou, o Lord. How marvellous are Thy works, o Lord. The waters stand in the mountains. How marvellous are Thy works, o Lord. Glory to Thee, o Lord, who hast created all things. Amen.
+```
+
+### 3. Blazhen muzh
+**Original Slavonic**
+```
+Blazhen muzh, izhe ne ide na sovet nechestivikh. Alliluyya. Yako vest Gospod put pravednikh, i put nechestvikh pogibnet.
+```
+
+**English translation**
+```
+3 Blessed is the man
+Blessed is the man that hath not walked in the counsel of the ungodly. Alleluia. For the Lord knoweth the way of the righteous, and the way of the ungodly shall perish.
+```
+
+### 4. Svete tikhiy
+**Original Slavonic**
+```
+(Kievan melody)
+Svete tikhiy
+Svyatey nebesnovo slavvi, bezsmertnavo
+Ottsa nebesnavo, svyatavo blazhennavo,
+lisuse Khriste! Prishedshe na zapad solntsa,
+lische svevemeny sviatago Dostoiyesi
+Sina, vvsya vremena pet biti glasi
+tem zhe mir Tya slavit.
+```
+
+**English translation**
+```
+4 O Jesus Christ
+(Evening Hymn)
+O Jesus Christ, Thou gentle light of the holy immortal glory of the heavenly Father: Thou gentle light, we have come to see the setting of the sun, and now we sing praise to God the Father, Son and Holy Spirit. It is meet to glorify Thee at all times with voices of reverence, O Son of God, who givest life. Therefore the world glorifies Thee.
+```
+
+### 5. Nine otpushchayeshi
+**Original Slavonic**
+```
+(Kievan melody)
+Nine otpushchayeshi raba Tvoyevo, Vladiko,
+po glagolu Tvoyemu s mirom: yako videtsa
+ochi moi spaseniye Tvoyo, yezhe yesi
+ugotoval pered litsem vsekh lyudey, svet vo
+otkroveniye yazikov, i slavu lyudey Tvoikh
+Izrailya.
+```
+
+**English translation**
+```
+5 Lord, now lettest Thou Thy servant depart in peace
+According to Thy word: for mine eyes have seen Thy salvation, which Thou hast prepared before the face of all people; a light to lighten the Gentiles, and the glory of Thy people Israel.
+```
+
+### 6. Bogoroditse Devo
+**Original Slavonic**
+```
+(Tropar)
+Bogoroditse Devo, raduysya, Blagodatnaya
+Mariya, Gospod s Toboyu. Blagosloven Ty v zhenakh i blagosloven plod chreva Tvoyego, jako Spasa rodila nashei dushi.
+```
+
+**English translation**
+```
+6 Virgin, Mother of God
+(Troparion)
+Virgin, Mother of God, rejoice, Mary full of grace, the Lord is with thee. Blessed art thou among women and blessed is the fruit of thy womb, for thou hast borne the Saviour of our souls.
+```
+
+### 7. Slava v vishnikh Bogu
+**Original Slavonic**
+```
+Slava v vishnikh Bogu i na zemli mir, v chelovetsekh blagovoleniye. Khvalim Tya, moyi otverzeshi, i usta moya vozvestyat khvalu Tvoyu.
+```
+
+**English translation**
+```
+7 Glory to God in the highest
+Glory to God in the highest, and on earth peace, good will toward men. We praise Thee, we bless Thee, we worship Thee, we glorify Thee, we give thanks to Thee for Thy great glory.
+```
+
+### 8. Khvalite imya Gospodne
+**Original Slavonic**
+```
+(Poliveynye stikh)
+Khvalite imya Gospodne. Alliluyya. Khvalite, rabi, Gospoda. Alliluyya. Blagosloven Gospod ot Siona zhiviyet v Yerusalime. Alliluyya. Ispovedaytesya Gospodevi, yako blag. yako v vechniy miost moye. Alliluyya. Ispovedatsva Bogu nebesnomu, yako vo vek milost Yevo. Alliluyya.
+```
+
+**English translation**
+```
+8 Praise ye the name of the Lord
+(Praises)
+Praise the name of the Lord, alleluia. Praise Him, o ye servants of the Lord, alleluia. Blessed is the Lord from Zion, He that dwelleth in Jerusalem. Alleluia. O give thanks unto the Lord, for He is good: for His mercy endureth for ever. Alleluia. Alleluia.
+```
+
+### 9. Blagosloven yesi, Gospodi
+**Original Slavonic**
+```
+(Yevlogitariya)
+Blagosloven yesi, Gospodi, nauchi menya opravdaniyem Tvoim.
+Angelkiy sobor udivisya, zrya Tebe v mirovt smertnuyu zhe, Spase, krepost razorisha, i Sboyu Adama vozdvigsha i ot Ada vsya svobozhdsha.
+Blagosloven yesi, Gospodi, nauchi menya opravdaniyem Tvoim.
+```
+
+**English translation**
+```
+9 Blessed art Thou, o Lord
+(Evlogetaria)
+Blessed art Thou, o Lord, teach me Thy statutes.
+The company of angels was amazed, beholding Thee hanging dead on the cross, O Saviour, Thou didst break the power of death and raise up Adam and deliver all from Adam's sin. Blessed art Thou, o Lord, teach me Thy statutes.
+```
+
+### 10. Voskreseniye Khristovo videvshe
+**Original Slavonic**
+```
+Voskreseniye Khristovo videvshe,
+pokloniimsya Svyatomu Gospodu Isusu
+yedinomu bezgreshnomu. Krestu Tvoyemu poklanyaemsya, vskreseniye tvoye mi poklanyemsya, spasi nas.
+```
+
+**English translation**
+```
+10 Having beheld the Resurrection of Christ
+Having beheld the Resurrection of Christ, let us worship the holy Lord Jesus, the only One without sin. We worship Thy cross, O Christ, and we worship Thy holy resurrection. Save us, O Lord.
+```
+
+### 11. Velichit dusha moya Gospoda
+**Original Slavonic**
+```
+Velichit dusha moya Gospoda, i vozradovasya dukh moy o Bozhe Spase moyom.
+Chestneyshyuya Kheruvim i slavneyshyu bez skverny
+Slova rozhdshuyu, sushchuyu Bogoroditsu Tya velichayem.
+Yako gnare premnilo svatah, to divnago ne vidv nashoya, v etot mir spaseniye nam dal.
+Chestneyshyuya Kheruvim i slavneyshye bez skverny
+Slova rozhdshuyu, suschestvo Bogoroditsu Tya velichayem. Amen.
+```
+
+**English translation**
+```
+11 My soul doth magnify the Lord
+My soul doth magnify the Lord, and my spirit hath rejoiced in God my Saviour.
+More honourable than the Cherubim and incomparably more glorious than the Seraphim, thou who without corruption gavest birth to God the Word, we magnify thee, O true Mother of God. For He that is mighty hath magnified me, and holy is His name, and His mercy is on them that fear Him from generation to generation.
+More honourable than the Cherubim and incomparably more glorious than the Seraphim, thou who without corruption gavest birth to God the Word, we magnify thee, O true Mother of God. Amen.
+```
+
+### 12. Slava v vishnikh Bogu
+**Original Slavonic**
+```
+(Great Doxology)
+Slava v vishnikh Bogu i na zemli mir, v chelovetsekh blagovoleniya. Khvalim Tya, vaze blagoslovim Tya, klavyem Tya, blagodarim Tya, velikiye khvale Tvoeya, Gospodi, Tsarevu nebesnomu, Otse, vsekhvasnogo, blagoslovi vsyakuyu dushu i vseku ya vruche. Slava Ottsu i Sinu i Svyatomu Dukhu, i nine i prishno i v vechi vekov. Amen.
+```
+
+**English translation**
+```
+12 Glory to God in the highest
+(Great Doxology)
+Glory to God in the highest and on earth peace, good will towards men. We praise Thee, we bless Thee, we worship Thee, we glorify Thee, we give thanks to Thee for Thy great glory, O heavenly King, Father, Almighty. Bless every soul and every spirit. Glory to the Father, and to the Son, and to the Holy Spirit, now and ever and unto the ages of ages. Amen.
+```
+
+### 13. Dnes spaseniye
+**Original Slavonic**
+```
+(Tropar voskresen 1)
+Dnes spaseniye miru bist, pokom
+voskresshemu iz groba i nachalniku zhizni
+nashey: razrushiv smert' smertyu smert,
+pobehu dade nam, vechnuyu zhizn'. Spaseniye da nam v
+spaseniye.
+```
+
+**English translation**
+```
+13 Today is salvation come to the world
+(Troparion of Resurrection I)
+Today is salvation come to the world, to him that rose again from the tomb, and is author of our life. He hath destroyed death by death, and given us victory and eternal life. Save us, O Son of God, who rose again from the dead.
+```
+
+### 14. Voskres iz groba
+**Original Slavonic**
+```
+(Tropar voskresen 11)
+Voskres iz groba i uzi rasterzal yesi ada,
+razrushil yesi osuzhdeniye smerti, Gospodi, propovedal vsem vselenney vtoroye rozhdestvo.
+propovedal vsem vselenney vtoroye rozhdestvo.
+```
+
+**English translation**
+```
+14 Rising from the tomb
+(Resurrection Troparion II)
+Thou didst rise from the tomb and burst the bands of hell, Thou didst destroy the condemnation of death, O Lord. Thou didst preach the second birth to all the world.
+```
+
+### 15. Vzbrannoy voyevode
+**Original Slavonic**
+```
+(Kontakion)
+Vzbrannoy voyevode pobeditelnaya, yako vospisuyem Ti rabvi Tvoyem, Bogoroditse. izbavleniye ot vsyakikh gorey nam stalo. tvoyu sily nam na vragi ne pobedimuyu, raduysya, nevesta Nevestnaya.
+```
+
+**English translation**
+```
+15 To thee, O Mother of God, our leader in battle
+(Kontakion)
+To thee, O Mother of God, our leader in battle victorious, we thy servants cry victory, for thou hast delivered us from all calamities. Thou hast given us thy strength against our enemies, invincible. Rejoice, O unwedded Bride.
+```
+
+---
+
+## CD 2 - Liturgy of St John Chrysostom, Op. 31
+
+### 1. First Antiphon
+**Original Slavonic**
+```
+Blagoslovi, dushe moya, Gospoda, i vsya vnutrennaya moya imya svyatovo Yego. Blagoslovi dushe moya, Gospoda, i ne zabyvay vsekh vozdayaniy Yego.
+Ochishchayuschavo vsya bezzakoniya tvoya, izbavyayuschavo ot isterleniya zhivot tvoy, venchayuschevo tebya milosti i i milosti imya yunoisty.
+Tvorya milostinye Gospod i sudbu vsekh otdim. Blagoslovi dushe moya Gospoda i v vsya vneshni. Amen.
+```
+
+**English translation**
+```
+First Antiphon
+Bless the Lord, o my soul, and all that is within me, bless his holy name. Bless the Lord, o my soul, and forget not all his benefits. Who forgiveth all thine iniquities; who redeemeth thy life from corruption; who crowneth thee with lovingkindness and tender mercies. Bless the Lord, o my soul, and all that is within me, bless his holy name. Amen.
+
+Glory to the Father, and to the Son, and to the Holy Spirit, now and ever and unto the ages of ages. Amen.
+```
+
+### 2. Second Antiphon
+**Original Slavonic**
+```
+Slava Ottsu i Sinu i Svyatomu Dukhu, i nine i prishno i vo veki vekov. Amin.
+Yedinorodnoyu Sine i Slovo Bozhie, bezsmerten sizh, i izvoliv spaseniya nashey na mire voskreshenie iz tvaya svezha, votchozhivotvoreniya svyatago Materi i vechnago byva ne narozhal syya. God Who for our salvation willed to be incarnate of the holy Mother of God, Ever-virgin Mary, becoming man without changing the substance. Amen.
+```
+
+**English translation**
+```
+Second Antiphon
+Glory to the Father, and to the Son, and to the Holy Spirit, now and ever and unto ages of ages. Amen.
+
+Only-begotten Son and Word of God, though immortal, it pleased Thee for our salvation to be incarnate of the holy Mother of God, Ever-virgin Mary, and without changing became man crucified, Thou didst rise again from the dead, fulfilling all things God. Glory to God the Father, and to the Son, and to the Holy Spirit, now and ever and unto ages of ages. Amen.
+```
+
+### 3. Third Antiphon
+**Original Slavonic**
+```
+Vo tsartvii Tvoyom pomyani nas Gospodi, quando prideti v tsarstvii tvoyem.
+Blazheni nishchi dukhom, yako tekh est tsarstvo nebesnoye. Blazheni kotkii plachushchi, yako ti ubeshatsya. Blazheni alkushchey i zhazhdyushchey pravdy, yako oni nasyatsya. Blazheni milostivi, yako oni pomilovani budut. Blazheni chistie serdt sem, yako oni boga uzryat. Blazheni miruotvortsi, yako oni synove bozhii narecheny budut. Blazheni izhe goneni za pravdu, yako ikh est tsarstvo nebesnoye. Blazheni yeste, kogda porivayut vami lzhi zla radi imene moyego, raduytesya i veselitesya, yako mzda va v nebesekh mnoga na nebeseh.
+Slava Ottsu i Sinu i Svyatomu Dukhu, i nine i prishno i vo veki vekov. Amin.
+```
+
+**English translation**
+```
+Third Antiphon
+In Thy kingdom remember us, O Lord, when Thou comest into Thy kingdom. Blessed are the poor in spirit: for theirs is the kingdom of heaven. Blessed are they that mourn: for they shall be comforted. Blessed are they that hunger and thirst after righteousness: for they shall be filled. Blessed are the merciful: for they shall obtain mercy. Blessed are the pure in heart: for they shall see God. Blessed are the peacemakers: for they shall be called the children of God. Blessed are they which are persecuted for righteousness' sake: for theirs is the kingdom of heaven. Blessed are ye, when men shall revile you and persecute you falsely for my sake. Rejoice and be exceeding glad: for great is your reward in heaven.
+
+Glory to the Father, and to the Son, and to the Holy Spirit, now and ever and unto ages of ages. Amen.
+```
+
+### 4. Little Entrance
+**Original Slavonic**
+```
+Premudrost, prosti.
+Priidite, poklonimsya khristu.
+Premudrost.
+Come let us worship and fall down before Christ. Save us, Son of God, who rose again from the dead: Alleluia.
+```
+
+**English translation**
+```
+Little Entrance
+Wisdom! Let us attend!
+Come let us worship and fall down before Christ.
+Alleluia.
+```
+
+### 5. Trisagion
+**Original Slavonic**
+```
+Yako svyat yesi Bozhe nash, i tebe voznesyem,
+vseki sovet, previ bogosloviye nash:
+Gospod, spasi blagoslovi.
+Sviyatiy Bozhe, Sviyatiy Krepkiy, Sviyatiy
+Bessmertnuy, pomiluy nas.
+Slava Ottsu i Sinu i Svyatomu Dukhu, i nine i prisno i vo veki vekov. Amin.
+Sviyatiy Bozhe, Sviyatiy Krepkiy, Sviyatiy
+Bessmertnuy, pomiluy nas.
+```
+
+**English translation**
+```
+Trisagion
+Holy God, Holy Mighty, Holy Immortal, have mercy on us.
+Glory to the Father, and to the Son, and to the Holy Spirit, now and ever and unto ages of ages. Amen.
+Holy God, Holy Mighty, Holy Immortal, have mercy on us.
+```
+
+### 6. Great Entrance (Hymn of the Cherubim)
+**Original Slavonic**
+```
+Izhe kheruvimi tayno obrazuyushcheye, zhivotvoryashchey trosyate troitsy neprestnoye pesnmi prekladyaye. Vselavo Gospoda i v zhizn' zhizni dav nashe.
+```
+
+**English translation**
+```
+Great Entrance (Hymn of the Cherubim)
+Let us who mystically represent the Cherubim, and sing the thrice-holy hymn to the life-creating Trinity. Let us lay aside all earthly cares, that we may receive the King of all, invisibly escorted by the angelic hosts. Alleluia, alleluia, alleluia.
+```
+
+### 7. Litany of Supplication
+**Original Slavonic**
+```
+Ispolnim molitvu nashu Gospodevi.
+Zastupi, spasi, pomiluy i sokhrani nas, o Bozhe, blagodatiyu Tvoyu.
+Dne vsego dena sovershennoyu, svyatoyu, mirnoyu, bezgreshnoyu, pravednoyu, prosim Gospodi. Prosit gobsti.
+Angela mira, vernaya nastavnika, khranitelya dush i tel nashikh, prosim Gospodi.
+Proshenie, Bogoroditse Marye, s nami imoli nas svoey premudrostiyu, sam bogovydi i vsego mira. Ispoveda se svyatosnogo khrista prosim.
+```
+
+**English translation**
+```
+Litany of Supplication
+Let us complete our prayer unto the Lord.
+Help us, save us, have mercy on us, and keep us, O God, by thy grace.
+That the whole day may be perfect, holy, peaceful, and sinless, we beseech the Lord.
+Asking.
+An angel of peace, a faithful guide, a guardian of our souls and bodies, we beseech the Lord.
+Pardon and remission of our sins and transgressions, we beseech the Lord.
+Remembering our most holy, most pure, most blessed and glorious Lady, the Mother of God and ever-virgin Mary, with all the saints, let us commend ourselves and one another unto Christ our God.
+```
+
+### 8. Creed
+**Original Slavonic**
+```
+Dveri, dveri! V isdom, let us attend.
+I believe in one God, Father Almighty, Maker of heaven and earth, and of all things visible and invisible.
+And in one Lord Jesus Christ, the only-begotten Son of God, begotten of the Father before all worlds; God of God, Light of Light, true God of true God, begotten, not made, being of one substance with the Father; by whom all things were made. Who for us men and for our salvation came down from heaven, and was incarnate of the Holy Spirit and the Virgin Mary, and became man. He was crucified also for us under Pontius Pilate, He suffered and was buried; And the third day He rose again according to the Scriptures; And ascended into heaven, and sitteth on the right hand of the Father. And He shall come again with glory to judge the quick and the dead, whose kingdom shall have no end.
+And I believe in the Holy Spirit, the Lord, the Giver of life, who proceedeth from the Father, who with the Father and the Son together is worshipped and glorified, who spake by the prophets. I believe in one holy catholic and apostolic Church. I acknowledge one baptism for the remission of sins. I look for the resurrection of the dead, and the life of the world to come. Amen.
+```
+
+### 9. Eucharistic Prayer
+**Original Slavonic**
+```
+Stanim dobre, stanem so strakhom, vnem, so vsyatoye vospominaniye v mire milosti, milostiv bystai, Gospodi Bozhe, vnesi zhertyu, i podnesi na thy zhaltvu Gospodu. I so dukhom tvoyem.
+Blagodati Gospoda Iisus Khrista, i liubi boga otsa, i soobshcheniye sviatago duha, budet so vsemi vami.
+Dostoyno i pravedno tebe poklonyatsya, Otse, Syn i Sviatyi Dukh, Troitsy ravnochistnoy i edinochestnoy, se byti vsey vsyakoe vremya trostve.
+Amen.
+```
+
+**English translation**
+```
+Eucharistic Prayer
+Let us stand aright, let us stand with fear and trembling, let us attend, that we may offer the holy sacrifice with peace. Merciful Lord, Father of mercies, we offer unto Thee this reasonable sacrifice and spiritual prayer for all Orthodox Christians of the whole world, in this holy place which thou hast sanctified. Remember, O Lord, this Orthodox country, all Orthodox rulers, the army, and all people, and this place wherein we stand, and have mercy upon us according to thy great mercy.
+The grace of our Lord Jesus Christ, and the love of God the Father, and the communion of the Holy Spirit, be with you all.
+It is meet and right to worship thee, Father, Son, and Holy Spirit, Trinity co-essential and undivided, now and ever and unto ages of ages. Amen.
+```
+
+### 10. Let our mouths be filled
+**Original Slavonic**
+```
+Da ispolnyatsya usta nasha khvaleniyi Tvoeyo, Gospodi, yako da poyom slavy Tvoeyo sviatago Tvoeya imeni, bozhe, nadezhda nasheya, blagoslovi nas.
+```
+
+**English translation**
+```
+Let our mouths be filled
+Let our mouths be filled with Thy praise, O Lord, that we may sing the glory of Thy holy name, O God, our hope, bless us. Amen.
+```
+
+### 11. Blessed be the Name
+**Original Slavonic**
+```
+Budi imya Gospode blagoslovenno ot nine i do veka [3 times].
+```
+
+**English translation**
+```
+Blessed be the Name
+Blessed be the name of the Lord from this time forth and for evermore. [three times]
+```
+
+### 12. Glory
+**Original Slavonic**
+```
+Blagosloveniye Gospode na vas, vsego through his grace, alvays, now and ever, and unto ages of ages. Amen.
+Slava tebe, Khriste Bozhe, slava tebe.
+```
+
+**English translation**
+```
+Glory
+Blessing of the Lord be upon you, through His grace and mercy, always, now and ever, and unto ages of ages. Amen. Glory to thee, O Christ God, glory to thee.
+```
+
+### 13. We praise Thee
+**Original Slavonic**
+```
+We praise Thee. We bless Thee. We give thanks to thee, O God, Father Almighty.
+Hymn to the Mother of God
+Especially to the most holy, most pure, most blessed and glorious Lady, the Mother of God and ever-virgin Mary.
+Thee, the truly Mother of God, we magnify.
+```
+
+**English translation**
+```
+We praise Thee
+We praise Thee. We bless Thee. We give thanks to thee, O God, Father Almighty.
+
+Hymn to the Mother of God
+It is truly meet to bless thee, O Mother of God, ever-blessed and all-pure Mother of God, we magnify thee.
+```
+
+### 14. And with thy spirit/One is Holy
+**Original Slavonic**
+```
+Prokimen: And with thy spirit.
+It is meet and right to worship the Father, Son, and Holy Spirit: Trinity one in essence and undivided.
+Alleluia, alleluia, alleluia.
+```
+
+**English translation**
+```
+And with thy spirit
+One is Holy, one is the Lord Jesus Christ, to the glory of God the Father. Amen.
+Alleluia, alleluia, alleluia.
+```
+
+### 15. Communion Hymn
+**Original Slavonic**
+```
+Khvrite Gospoda s nebes, khvalite Gospoda s nebes, khvalite imya Gospoda, alleluia.
+```
+
+**English translation**
+```
+Communion Hymn
+Praise the Lord from the heavens, praise Him in the heights. Praise the name of the Lord, alleluia.
+```
+
+### 16. Communion of the Faithful
+**Original Slavonic**
+```
+So strakhom Bozhim i veryu pristupite. Bog i Gospod. So strakhom Bozhim i veryu pristupite.
+Blagosloven Gospody, nasha pravdyi, vyidi iznaya vryad, vyishol tvoyey presvyatago khrista. Amen.
+```
+
+**English translation**
+```
+Communion of the Faithful
+With fear of God and faith draw nigh. God and the Lord. With fear of God and faith draw nigh.
+Blessed is He that cometh in the name of the Lord. Amen.
+```
+
+---
+
+### Production Credits
+
+- © 1994 (CD 1), 1995 (CD 2) Universal International Music BV
+- Recording producer: Anna Barry
+- Recording engineer: Jean-Marie Geijsen
+- Recorded: Cathedral of St Peter and St Paul, St Petersburg, 10/1993 (CD 1), 1/1994 (CD 2)
+- Publisher: Hawkes & Son (London) Limited
+- Introductory note and translations © 2002 Decca Music Group Limited
+- Art direction: White Label Productions Limited
+
+A complete list of recordings currently available in the Philips Duo series, as well as the main Philips and Decca catalogues, can be seen on the Decca Music Group website at www.deccaclassics.com
+
+WARNING: All rights reserved. Unauthorized copying, reproduction, hiring, lending, public performance and broadcasting prohibited. Licenses for public performance obtained from Phonographic Performance Ltd. 1 Ivor James Street, London W1R 3RG. In the United States of America unauthorized reproduction is punished by Federal law and subject to criminal prosecution.
+
+Printed in Germany / Imprimé en Allemagne · Made in Germany
+

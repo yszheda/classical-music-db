@@ -1,0 +1,323 @@
+# Booklet Complete Original Text
+
+---
+
+## Cover (cover.jpg)
+
+```
+JOHANN SEBASTIAN BACH
+DAS WOHLTEMPERIERTE CLAVIER
+LIVRE I
+ANDREI VIERU
+alpha
+```
+
+---
+
+## Back (back.jpg)
+
+```
+JOHANN SEBASTIAN BACH (1685-1750)
+Das Wohltemperierte Clavier
+Livre I
+ANDREI VIERU piano
+
+alpha 087
+2CD
+Total playing time: 70'30'' + 68'19'' = 139'49''
+P 2005 Andrei Vieru
+C 2005 Alpha Productions
+Made in EU
+www.alpha-productions.net
+3 7 6 0 0 1 4 1 9 0 8 7 2
+```
+
+---
+
+## Page 1 (scans/HIPPO_20221003_0001.jpg)
+
+# Johann Sebastian Bach
+## Das Wohltemperierte Clavier – Livre I
+
+The name which Bach gave to his collection of Twenty-four Preludes and Fugues, one in each major and minor tonalities, does not only describe the system of tuning which was supposed to allow the performance of all the keys without retuning the instrument. It also – and perhaps above all – carries a metaphysical meaning: "well-tempered" is the clavier which knows how to keep the right measure between all the affections of the soul, from the lowest to the highest, how to maintain itself in the golden mean, how to temper all the excesses. That is what the interpreter must try to realize in order to do justice to this work which is one of the summits of the history of music.
+
+---
+
+## Page 2 (scans/HIPPO_20221003_0002.jpg)
+
+# Préludes et Fugues
+## Livre I – BWV 846/869
+
+### Disque 1
+
+1. Prélude C majeur BWV 846  3'18''
+2. Fugue C majeur BWV 846  1'53''
+3. Prélude C majeur BWV 846 (2ème version)  3'19''
+4. Prélude C mineur BWV 847  2'11''
+5. Fugue C mineur BWV 847  2'50''
+6. Prélude C# majeur BWV 848  2'39''
+7. Fugue C# majeur BWV 848  2'01''
+8. Prélude C# mineur BWV 849  2'04''
+9. Fugue C# mineur BWV 849  3'15''
+10. Prélude D majeur BWV 850  3'11''
+11. Fugue D majeur BWV 850  3'17''
+12. Prélude D mineur BWV 851  1'55''
+13. Fugue D mineur BWV 851  2'59''
+14. Prélude E♭ majeur BWV 852  5'31''
+15. Fugue E♭ majeur BWV 852  3'33''
+16. Prélude E♭ mineur BWV 853  3'32''
+
+---
+
+## Page 3 (scans/HIPPO_20221003_0003.jpg)
+
+17. Fugue E♭ mineur BWV 853  6'50''
+18. Prélude E♭ mineur BWV 853 (version alternative de F. Liszt)  3'34''
+19. Prélude E majeur BWV 854  3'27''
+20. Fugue E majeur BWV 854  2'44''
+21. Prélude E mineur BWV 855  2'00''
+22. Fugue E mineur BWV 855  1'35''
+23. Prélude F majeur BWV 856  2'45''
+24. Fugue F majeur BWV 856  2'50''
+25. Prélude F mineur BWV 857  1'55''
+26. Fugue F mineur BWV 857  3'56''
+
+Total disque 1  70'30''
+
+---
+
+## Page 4 (scans/HIPPO_20221003_0004.jpg)
+
+### Disque 2
+
+27. Prélude F# majeur BWV 858  3'47''
+28. Fugue F# majeur BWV 858  2'46''
+29. Prélude F# majeur BWV 858 (2ème version)  3'39''
+30. Prélude F# mineur BWV 859  2'51''
+31. Fugue F# mineur BWV 859  Fugue 1'51'' + reprise 3'01''  4'52''
+32. Prélude G majeur BWV 860  2'36''
+33. Fugue G majeur BWV 860  3'32''
+34. Prélude G mineur BWV 861  2'05''
+35. Fugue G mineur BWV 861  3'53''
+36. Prélude A♭ majeur BWV 862  4'03''
+37. Fugue A♭ majeur BWV 862  4'09''
+38. Prélude G# mineur BWV 863  2'15''
+
+---
+
+## Page 5 (scans/HIPPO_20221003_0005.jpg)
+
+39. Fugue G# mineur BWV 863  3'24''
+40. Prélude A majeur BWV 864  2'35''
+41. Fugue A majeur BWV 864  2'36''
+42. Prélude A mineur BWV 865  1'56''
+43. Fugue A mineur BWV 865  2'25''
+44. Prélude B♭ majeur BWV 866  4'30''
+45. Fugue B♭ majeur BWV 866  3'43''
+46. Prélude B♭ mineur BWV 867  3'09''
+47. Fugue B♭ mineur BWV 867  4'24''
+48. Prélude B majeur BWV 868  0'58''
+49. Fugue B majeur BWV 868  2'49''
+50. Prélude B mineur BWV 869  3'34''
+51. Fugue B mineur BWV 869  3'59''
+
+Total disque 2  68'19''
+
+---
+
+## Page 6 (scans/HIPPO_20221003_0006.jpg)
+
+# Johann Sebastian Bach: Das Wohltemperierte Clavier, Livre I
+## Notes on the recording
+
+Il va de soi que, les lecteurs de CD étant programmables, l'auditeur peut établir lui-même l'ordre des plages qu'il écoute. Ainsi, pour les préludes en Ut majeur, en mi bémol mineur et en Fa dièse majeur, il peut choisir la version qu'il préfère. Il n'en va pas de même pour la fugue en sol dièse mineur, dont nous avons choisi de présenter les deux versions sur la même plage, comme si Bach avait marqué à la fin de cette fugue un signe de reprise.
+
+Hormis la dernière plage du premier disque (qui peut d'ailleurs être écoutée comme une pièce à part, sans la fugue), l'écoute des plages dans l'ordre que nous proposons relève d'une autre logique. Par exemple, les trois premières plages du deuxième disque peuvent être écoutées à la suite, comme s'il s'agissait d'une œuvre tardive, en forme de Lied, de Beethoven ou de Schubert.
+
+Andrei Vieru & Jean-Paul Combet
+
+---
+
+## Page 7 (scans/HIPPO_20221003_0007.jpg)
+
+It goes without saying that, since CD players have a programming facility, the listener may decide for himself the running order of the tracks. Thus, for the Preludes in C major, E flat minor and F sharp major, he may choose the version he prefers. The same is not true of the Fugue in G sharp minor, where we have chosen to present the two versions on the same track, as if Bach had placed a repeat mark at the end of this fugue.
+
+With the exception of the last track on the first CD (which moreover can be approached as a piece on its own, without the fugue), listening to the tracks in the order we propose follows a different logic. For example, the first three tracks on the second CD may be listened to in succession, as if they constituted a single late work in song form by Beethoven or Schubert.
+
+Andrei Vieru & Jean-Paul Combet
+
+---
+
+## Page 8 (scans/HIPPO_20221003_0008.jpg)
+
+## Commentaire par Denis Grenier
+(Université Laval, Québec, Octobre 2005)
+
+### Antonello da Messina
+*Messine, v. 1430 - v. 1479*
+*Annonciation, 1474, détail partie gauche*
+*Huile sur toile [initialement sur bois], 180 x 180 cm [170 x 170 cm]*
+*Syracuse, Galleria Regionale di Palazzo Bellomo*
+
+Venu lui annoncer qu'elle serait la Mère du Sauveur, un archange Gabriel vêtu des plus beaux atours et arborant de volumineuses ailes polychromes s'est agenouillé devant l'Élue de Dieu. Disparaissant sous le lourd brocart de fils d'or, complété d'un nimbe, le visiteur salue la Vierge de la main droite et, avec respect, s'apprête à livrer le message divin. De la gauche, l'ange tient une palme à moitié cachée par l'architecture, un dispositif auquel les « primitifs » siennois ont recours dès le Trecento pour donner l'illusion de la profondeur spatiale. La scène se déroule dans une loggia à l'italienne qui emprunte au vocabulaire classique son entablement reprenant les roses de l'art romain. Un ruban de pierre l'enserre telle une ville s'enroulant autour de la structure porteuse du plafond, aux nombreuses poutres apparentes. Légèrement décalée au centre, une colonne monumentale est surmontée d'un chapiteau composite orné de feuilles d'acanthe et autres végétaux, et de cornes d'abondance.
+
+---
+
+## Page 9 (scans/HIPPO_20221003_0009.jpg)
+
+Pour autant que l'œil puisse en juger, étant donné le mauvais état de conservation du « diptyque », et l'habileté confondante de l'artiste, l'espace est traité de façon relativement cohérente, selon les préceptes axonométriques d'Alberti, en vigueur au Quattrocento. Or si à première vue la perspective semble légitime, elle débouche sur une fenêtre dont la vue sur le lointain rappelle les paysages aperçus depuis les intérieurs intimes et feutrés des Flamands Van Eyck et Maître de Flémalle, plus descriptifs des accidents et des textures que reflétant le souci de structurer la représentation. Quant au personnage céleste, il recèle un parfum gothique qui étonne à la période de maturité de l'artiste. Cette attitude rétrospective reflète sans doute le goût de commanditaires plus enclins à admirer la somptuosité pour elle-même et à exiger la richesse qu'à se pâmer pour les plus récentes nouveautés théoriques de la peinture péninsulaire. La Sicile est un carrefour qui s'avère perméable aux valeurs des nombreuses cultures avec lesquelles la géographie et l'histoire l'ont mise en rapport, une civilisation qui accueille l'éclectisme sans arrière-pensée, et pratique sans heurts le harnachement esthétique. La formation napolitaine d'Antonello l'a mis en contact précoce avec les œuvres flamandes, bourguignonnes et provençales, legs de l'Espagne tutélaire, colosse politique derrière lequel se cache un main artistique tributaire des pratiques des territoires sous sa férule.
+
+---
+
+## Page 10 (scans/HIPPO_20221003_0010.jpg)
+
+Si Piero della Francesca dont les formes pleines et la clarté de la composition sont séminales à son art — l'imposante colonne centrale n'est pas sans faire songer à celle de l'Annonciation du fameux cycle d'Arezzo avec laquelle elle accuse une nette parenté —, il sait par ailleurs s'adapter aux désirs de ses mécènes. Le résultat est le fruit de la résolution habile de tensions qu'aurait pu engendrer la cohabitation de divers éléments contradictoires, que l'artiste parvient à harmoniser en les rendant complémentaires. Selon son goût, chacun y trouve satisfaction et admire le brio du peintre qui sait plaire à ses commanditaires sans pour autant renier les acquis artistiques de l'Italie centrale, qu'il a fusionnés à la technique à base d'huile des Pays-Bas méridionaux, révélée aux Vénitiens par son entremise.
+
+L'état du monument, que diverses restaurations n'ont pas réussi à rétablir dans son intégrité originelle, en limite l'étude. À défaut d'exégèse exhaustive, une réflexion sur la relation entre l'art et le temps surgit comme une nécessité. Plus que jamais se profile l'anachronisme, « tare » exercée par l'historien, mais réalité à laquelle il ne peut se soustraire, et dont il ne peut boucler l'apport sans appauvrir sa compréhension du monde. Nostalgiques d'un hier idéal et idéalisé dont les pertes leur étaient apparues insupportables, les Romantiques ont souvent cherché avec un succès mitigé à colmater les brèches que l'« érosion » aurait fait subir aux créations du passé. Mauvaise conseillère, la loi du progrès les a parfois menés à l'outrance en matière de remise en état.
+
+---
+
+## Page 11 (scans/HIPPO_20221003_0011.jpg)
+
+Pourtant, en des temps dont notre époque a perdu les repères, Victor Hugo écrivait en 1837 :
+
+> Il faut que le fronton s'effeuille comme un arbre,
+> Il faut que le lichen, cette rouille du marbre,
+> De sa lèvre dorée au loin contre le mur ;
+> Et que la vêture, par qui tout art s'efface,
+> Prendre chaque sculpture et le rouge à la face,
+> Comme un avide oiseau qui dévore un fruit mûr.
+
+Le Temps, ce « grand sculpteur » interpellé par Marguerite Yourcenar est implacable, mais en semblant enlever, il ajoute ; en ayant l'air de réduire au silence, il alimente le discours. Nul, pas même l'œuvre d'art, n'échappe à son empire. Labile, elle se métamorphose, comme chaque jour le regard du spectateur se transforme, tout autant que l'animal qu'il est. À chaque fois, la rencontre des deux recouvre une autre dimension, prend une autre tournure. Que cela soit la conséquence des outrages physiques subis par le matériau artistique, ou résulte de changements survenus dans l'esprit et la sensibilité de celui qui pose l'œil sur l'œuvre, le sens ne sédimente jamais et s'enrichit plutôt de pistes de compréhension demeurées en jachère. L'icône se laisse ainsi pénétrer d'idées susceptibles de jeter un éclairage inédit sur sa nature et de percer plus avant les arcanes de sa rhétorique.
+
+---
+
+## Page 12 (scans/HIPPO_20221003_0012.jpg)
+
+Certes, la peinture n'est pas comme la sœur la musique, un substrat ductile dont la forme participe de l'intervention seconde, mais obligée, de l'interprète. Essayer de restituer les conditions originales de l'exécution de celle-ci est certes entreprise viable, mais incertaine, décrypter les concrétions et les perspectives que le passage du temps suggère peu à peu à l'analyste de celle-là s'inscrit dans la même logique. Devant les pertes et les transformations provoquées par l'usure, l'historien balbutie, aiguillonné vers d'autres possibles. L'angle de prise toujours se raffine et se transforme en un nouveau voir, en un nouvel entendre. La force poétique de l'invention survit aux vicissitudes des apparences, plus, elle les transfigure.
+
+© Denis Grenier
+Département d'histoire
+Université Laval, Québec
+Denis.Grenier@hst.ulaval.ca
+Octobre 2005
+
+---
+
+## Page 13 (scans/HIPPO_20221003_0013.jpg)
+
+## Crédits
+
+- Piano : Andrei Vieru, Piano Steinway & Sons
+- Enregistré à la Chapelle de l'hôpital Notre-Dame de Bon Secours, à Paris, été 2005
+- Prise de son, direction artistique & montage : Hugues Deschaux
+- Remerciements : Anatol Vieru, Nina Vieru, Christian Beldi, Jacques de Broissia, Jean-Paul Combet, Lena & Vladimir Conta, Hugues Deschaux, Gérard Fallour, Yvette Fulicea, Dan Grigore, Radu Lupu, Dan Lustgarten, Antoine Paszkiewicz, Ludmila Popisteanu, Louise Rossignol, Anne de Rouville, Andrée Rudeault, Siméon Ulubeanu, Graziella Vallée, Nicolas & Catherine Zourabichvili
+- Photographies : Robin Davies
+- Iconographie : AKG photo, Paris / Antonello da Messina, *Annonciation*
+
+---
+
+## Page 14 (scans/HIPPO_20221003_0014.jpg)
+
+## ALPHA PRODUCTIONS
+
+Alpha Productions
+16, rue Benjamin Godard
+F-75016 Paris
+France
+
+www.alpha-productions.net
+
+With the support of:
+
+- Mécénat Musical
+- Université Laval Québec
+- Hôpital Bon Secours Paris
+
+---
+
+## Page 15 (scans/HIPPO_20221003_0015.jpg)
+
+[This page is inside the CD holder - blank with just the Alpha logo]
+
+**alpha**
+productions
+
+---
+
+## Page 16 (scans/HIPPO_20221003_0016.jpg)
+
+[Back side of CD1 insert]
+
+# J.S. BACH
+## Das Wohltemperierte Clavier - Livre I
+## ANDREI VIERU
+
+Disque 1
+1. C majeur BWV 846
+2. C mineur BWV 847
+3. C# majeur BWV 848
+4. C# mineur BWV 849
+5. D majeur BWV 850
+6. D mineur BWV 851
+7. E♭ majeur BWV 852
+8. E♭ mineur BWV 853
+9. E majeur BWV 854
+10. E mineur BWV 855
+11. F majeur BWV 856
+12. F mineur BWV 857
+
+alpha 087
+
+---
+
+## Page 17 (scans/HIPPO_20221003_0017.jpg)
+
+[Back side of CD2 insert]
+
+# J.S. BACH
+## Das Wohltemperierte Clavier - Livre I
+## ANDREI VIERU
+
+Disque 2
+13. F# majeur BWV 858
+14. F# mineur BWV 859
+15. G majeur BWV 860
+16. G mineur BWV 861
+17. A♭ majeur BWV 862
+18. G# mineur BWV 863
+19. A majeur BWV 864
+20. A mineur BWV 865
+21. B♭ majeur BWV 866
+22. B♭ mineur BWV 867
+23. B majeur BWV 868
+24. B mineur BWV 869
+
+alpha 087
+
+---
+
+## Page 18 (scans/HIPPO_20221003_0018.jpg)
+
+[Inside front cover - publisher information]
+
+alpha productions
+Paris
+
+Made in EU
+P 2005 Andrei Vieru
+C 2005 Alpha Productions
+
+---
+
+## Page 19 (scans/HIPPO_20221003_0019.jpg)
+
+[Back cover verso - barcode]
+
+[Barcode: 3760014190872]
+
+alpha 087
+
+---
+
+© 2005 Alpha Productions

@@ -1,0 +1,162 @@
+# Booklet完整原文
+
+## 封面
+
+```
+Valentin Silvestrov
+Bagatellen und Serenaden
+ECM NEW SERIES
+```
+
+## 封底
+
+```
+Valentin Silvestrov
+Bagatellen I–XIII
+Valentin Silvestrov, Klavier
+ECM 1988
+
+Elegie
+für Streichorchester
+Stille Musik
+für Streichorchester
+Abschiedsserenade
+für Streichorchester
+Der Bote
+für Streicher und Klavier
+Zwei Dialoge mit Nachwort
+für Streichorchester und Klavier
+
+Alexei Lubimov, Klavier
+Münchener Kammerorchester
+Christoph Poppen, Leitung
+
+Produced by Manfred Eicher
+
+℗ 2007 ECM Records GmbH
+© 2007 ECM Records GmbH
+ECM Records
+Postfach 600 331
+81203 München
+www.ecmrecords.com
+
+[74:58]
+ECM NEW SERIES
+
+0 28947 66178 8
+```
+
+---
+
+## 内页
+
+### Valentin Silvestrov
+
+*Bagatellen und Serenaden*
+
+The musical world of Valentin Silvestrov has been described in various ways: as an "arrière-garde" aesthetic, as "new simplicity", as postmodern. Yet none of these definitions are particularly helpful. If anything, they obscure what is most immediate, most striking in his music. Silvestrov was born in Kiev in 1937, and still lives and works in the Ukrainian capital. He studied composition with Boris Lyatoshynsky, one of the most distinguished Ukrainian composers of his generation, and became one of the leading figures of the Ukrainian avantgarde of the Sixties. Yet this is a past chapter which Silvestrov quickly left behind.
+
+"All art is new", he once wrote, "but it is related to what already exists. When we speak of newness, it is generally to the point that what is already there also has a future. The art of the past also belongs to the present of artistic thinking. It is also modern… This is the reason why all the most powerful, essential art is always on the other side of all 'isms'."
+
+This fundamental scepticism towards -isms, towards fashionable stylistic definition is one of the constants of his aesthetic thinking. Silvestrov's artistic path is one of radical conservatism, if you will, a stance that can only be maintained through artistic autonomy. He has always pursued his own, highly individual path, drawing on all the resources of the musical tradition – but never in a spirit of quotation or pastiche. His is a synthetic approach, one that re-embodies the gestures and forms of the past in a contemporary language. In his output, the traditional forms of classical music – sonatas, symphonies, quartets, serenades – still live; and his way with harmonic progression is entirely characteristic. He constantly "leaves behind" the developmental path of modernism, returning to simple triads, to harmonic movement that retains all its power to evoke feeling. He is a composer for whom every new beginning seems like a memory of something we have already heard, a sense of musical homecoming. This lends his music a peculiar beauty, a quiet depth that is very much his own.
+
+The present disc is a sort of Silvestrov portrait, concentrating on works from the last 20 years. Silvestrov himself is the pianist in the early cycle of thirteen Bagatelles (1953-56, revised 1998) – pieces whose apparently artless opening motifs already open out into the songful, meditative world that has characterised his work ever since. The five orchestral works were all recorded with Alexei Lubimov at the piano, the Munich Chamber Orchestra under Christoph Poppen, in February 2006. Elegie (1996) is a relatively early example of Silvestrov's orchestral writing in this later mode – a quiet threnody, its hymnal progress coloured by autumnal melancholy. Stille Musik ("Still Music", 1993) was written for the 100th anniversary of the Berlin Philharmonic, and is a characteristic manifestation of Silvestrov's ideal of "quiet, still music, for those times when everything has already been said, everything has already happened – after all the catastrophes, after all the noises of the world outside". Even the title of Abschiedsserenade ("Farewell Serenade", 2001) speaks for itself. It is, as the composer says, "a farewell to the whole tradition of the serenade. It says goodbye to the past – and everything that has ever been in serenades, all the tradition, can be heard in it." Der Bote ("The Messenger", 1996) is scored for strings and piano: "The messenger brings a message that is both happy and sad – the message of love. It says: 'I am here, but I must depart'. This duality, this feeling that the message can never really be fully delivered, that it always comes too early or too late – this is the theme." Finally, Zwei Dialoge mit Nachwort ("Two Dialogues with Afterword", 2001) explores the contrast between string orchestra and piano: "It is a dialogue between the living and the dead, the voice of the dead and the echo of the living… the words of one, the echo of the other. After the dialogue comes an echo of the words, the afterword."
+
+This is all the programmatic guidance Silvestrov offers us, a series of clues rather than anything so blunt as a statement of intent. And that is entirely in keeping with a music that speaks to us quietly, indirectly, as the background noise of the world fades. It invites us to listen more carefully, to hear the music's unusual sonority, the slow, serene harmonic breathing, the sense of perspective that opens out before us in the silence. "Music", says Silvestrov, "is an echo of what exists beyond us. And that is why it is so necessary. It is an echo that is left behind after all that passes, after everything that goes away. And in this form, it survives the threat of disappearance – and that is why it is beauty."
+
+**The composer on the Bagatelles:**
+
+These bagatelles were written at a very early stage in my evolution as a composer. I was still studying at the Kiev Conservatory, and was living in the house of my ailing father, near Kiev. It was 1953. I was beginning to find my way into the world, to understand it more deeply – the world of music, and the life around me – and what lay ahead for me. That period was like a dawn – a dawn awakening. I began to write these small pieces. The name "bagatelle" corresponded to the smallness of their format, to their casual, unconstrained nature, to this sense of something provisional, something preliminary. I was still trying everything out, feeling my way forward. And the music was coming into being, after all the years of war – that post-war dawn. At the time, I had a feeling that a new life was starting for everyone, including myself.
+
+Many years later, in 1998, I looked at the manuscript again, and was moved by my own earlier feeling. I revisited the work, but only slightly retouched it, without making any fundamental changes. I felt that it was right as it was – that it couldn't be changed. There's an old saying: "A burnt child fears the fire." I was a burnt child, I survived the war. I knew what life was. So these pieces already have that quality of distance, of quietness and distance that is typical of all my later music. They already contain the seeds of everything I would later do. It was as if I was already who I am. I couldn't believe my eyes: that I was already that person back then!
+
+Valentin Silvestrov, 2006
+
+---
+
+Translated by John Coe
+
+Temperance
+Nothing excessive
+The wisdom of the ages
+Amen.
+
+(After Anna Akhmatova)
+
+---
+
+**Tracklist**
+
+Valentin Silvestrov (*1937)
+
+**Bagatellen I-XIII** (1953/1998)
+for piano
+Valentin Silvestrov, piano
+
+1. Andante 2:01
+2. Allegro molto 0:51
+3. Lento 1:40
+4. Moderato 1:08
+5. Allegretto 1:07
+6. Andante 2:16
+7. Allegretto 1:04
+8. Lento 1:38
+9. Moderato 1:05
+10. Allegretto 1:11
+11. Andante 1:57
+12. Vivace 0:55
+13. Lento 2:14
+
+**Elegie** (1996)
+for string orchestra
+Münchener Kammerorchester
+Christoph Poppen, conductor
+
+14. Elegy 11:31
+
+**Stille Musik** (1993)
+for string orchestra
+
+15. Stille Musik 11:02
+
+**Abschiedsserenade** (2001)
+for string orchestra
+
+16. Abschiedsserenade 10:25
+
+**Der Bote** (1996)
+for strings and piano
+Alexei Lubimov, piano
+
+17. Der Bote 9:20
+
+**Zwei Dialoge mit Nachwort** (2001)
+for string orchestra and piano
+Alexei Lubimov, piano
+
+18. Two Dialogues with Postscript 14:52
+
+Total time 74:58
+
+---
+
+Recorded February 2006
+Himmelfahrtskirche, München
+Tonmeister: Stephan Schellmann
+Cover Photo: Jan Jedlička
+Liner Photos: Viktor Marushchenko (pp.4, 13),
+Dorian Supin (pp.24/25)
+Design: Sascha Kleis
+Produced by Manfred Eicher
+
+An ECM Production
+
+Publisher: Musikverlag M. P. Belaieff
+
+Views of Kiev from the books "A Song About Kiev", Mistectvo, 1978 (pp.14, 15), and "Kiev", Alternativy, 2001 (pp.26/27).
+
+℗ 2007 ECM Records GmbH
+© 2007 ECM Records GmbH
+www.ecmrecords.com
+
+(Last page: Black and white landscape photograph of Kiev river Dniepr with ice floes, no text)

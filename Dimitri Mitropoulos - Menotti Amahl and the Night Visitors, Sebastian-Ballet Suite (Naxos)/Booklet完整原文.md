@@ -1,0 +1,236 @@
+# Gian Carlo Menotti
+## Amahl and the Night Visitors / Sebastian - Ballet Suite
+### 1946-1951 Recordings
+
+Chet Allen • Rosemary Kuhlmann • Andrew McKinley
+David Aiken • Leon Lishner • Frank Monachino
+Orchestra and Chorus • Thomas Schippers
+Robin Hood Dell Orchestra of Philadelphia
+Dimitri Mitropoulos
+
+NAXOS
+
+---
+
+## [Front Cover]
+
+Gian Carlo
+MENOTTI
+Amahl and the Night Visitors
+Sebastian – Ballet Suite
+
+1946 - 1951 Recordings
+
+Chet Allen • Rosemary Kuhlmann • Andrew McKinley
+David Aiken • Leon Lishner • Frank Monachino
+Orchestra and Chorus • Thomas Schippers
+Robin Hood Dell Orchestra of Philadelphia
+Dimitri Mitropoulos
+
+NAXOS
+
+---
+
+## [Back Cover]
+
+Gian Carlo
+MENOTTI
+(1911-2007)
+
+**Amahl and the Night Visitors**
+Amahl ................................. Chet Allen
+His Mother ...................... Rosemary Kuhlmann
+Kaspar .......................... Andrew McKinley
+Melchior ............................. David Aiken
+Balthazar ........................... Leon Lishner
+The Page ......................... Frank Monachino
+
+Orchestra and Chorus • Thomas Schippers
+Recorded in New York City, December 1951
+
+**Sebastian – Ballet Suite**
+Robin Hood Dell Orchestra of Philadelphia
+Dimitri Mitropoulos
+
+Recorded in the Academy of Music, Philadelphia, 26th July, 1946
+
+| Work | Tracks | Total Time |
+|------|--------|-----------|
+| Amahl and the Night Visitors | 1-14 | 46:25 |
+| **Sebastian – Ballet Suite** | 15-20 | 16:41 |
+| 15 | Introduction | 1:59 |
+| 16 | Barcarolle | 3:38 |
+| 17 | Street Fight | 1:17 |
+| 18 | Cortège | 3:53 |
+| 19 | Sebastian's Dance | 2:04 |
+| 20 | Pavane | 3:50 |
+
+The reception for the first television broadcast of Menotti's opera *Amahl and the Night Visitors* (also available in an acclaimed modern recording on Naxos 8.669019) was overwhelming: an estimated five million viewers, the NBC switchboard jammed with congratulatory calls and an unprecedented front-page review in *The New York Times*. Quickly recorded for RCA Victor, the album became a best-seller and the opera remains a Christmas evergreen, brimming with memorable tunes for both soloists and chorus. Set in 17th-century Venice, Menotti's ballet *Sebastian*, the concert suite from which is heard here, was applauded by *The New York Times* as an 'unblushing melodrama... brilliantly effective'.
+
+Reissue Producer and Restoration Engineer: Mark Obert-Thorn
+Cover photo: Gian Carlo Menotti, Milan 1954 (Private Collection)
+Publishers: G. Schirmer Inc. (Amahl and the Night Visitors);
+Universal Music Publishing Classical-Casa Ricordi (Sebastian – Ballet Suite)
+
+www.naxos.com
+
+8.111364
+ADD MONO
+Playing Time 63:06
+Barcode: 7 47313 33642 5
+© & ℗ 2011 Naxos Records Ltd.
+Made in Germany
+
+---
+
+## [Page 2-3]
+
+# MENOTTI CENTENARY EDITION
+
+Gian Carlo
+MENOTTI
+(1911-2007)
+
+## Amahl and the Night Visitors
+Original Cast of the 1951 NBC Television Production
+Opera in One Act - Libretto by the Composer
+
+**Amahl** (a crippled boy of about 12) ..................... Chet Allen (boy soprano)
+**His Mother** ............................ Rosemary Kuhlmann (mezzo-soprano)
+**The Three Kings:**
+ Kaspar (slightly deaf) .................................- Andrew McKinley (tenor)
+ Melchior ............................................. David Aiken (baritone)
+ Balthazar ............................................. Leon Lishner (baritone)
+**The Page** ........................................... Frank Monachino (baritone)
+
+Orchestra and Chorus
+Thomas Schippers
+
+Recorded in New York City, December 1951
+First issued on RCA Victor LM-1701
+
+Reissue Producer and Audio Restoration Engineer: Mark Obert-Thorn
+
+| Amahl and the Night Visitors |  |  |  | **46:25** |
+|------|------|------|------|----------|
+| 1 | Amahl! Amahl! (The Mother, Amahl) |  |  | 3:42 |
+| 2 | What was keeping you outside? (The Mother, Amahl) |  |  | 3:26 |
+| 3 | Don't cry, Mother dear (Amahl, The Mother) |  |  | 2:09 |
+| 4 | From far away we come and farther we must go (Kaspar, Melchior, Balthazar) |  |  | 2:33 |
+| 5 | Amahl, go and see who's knocking at the door (The Mother, Amahl) |  |  | 2:42 |
+| 6 | Good evening! (Kaspar, Melchior, Balthazar, Amahl, The Mother) |  |  | 2:45 |
+| 7 | Are you a real King? (Amahl, Balthazar, Kaspar, The Mother, Melchior) |  |  | 4:35 |
+| 8 | Have you seen a Child (Melchior, The Mother, Balthazar, Kaspar) |  |  | 4:03 |
+| 9 | Shepherds! Shepherdesses! (Shepherds, The Mother, Melchior, Kaspar, Balthazar) |  |  | 2:41 |
+| 10 | Shepherds' Dance (Orchestra) |  |  | 3:20 |
+| 11 | Thank you, good friends (Balthazar, Shepherds, Amahl, Kaspar) |  |  | 2:38 |
+| 12 | All that gold! All that gold! (Kaspar, Melchior, Balthazar, Amahl, Balthazar, Kaspar, Amahl) |  |  | 3:47 |
+| 13 | Oh, woman, you can keep the gold (Melchior, The Mother, Amahl, Kaspar, Balthazar) |  |  | 3:30 |
+| 14 | Look, Mother, I can dance (Amahl, Kaspar, Melchior, Balthazar, The Mother, Shepherds) |  |  | 4:34 |
+
+---
+
+## [Page 4-5]
+
+# Gian Carlo MENOTTI
+(1911-2007)
+
+## Sebastian – Ballet in two parts
+### Suite - Subject by the Composer
+
+| 15 | Introduction | 1:59 |
+| 16 | Barcarolle | 3:38 |
+| 17 | Street Fight | 1:17 |
+| 18 | Cortège | 3:53 |
+| 19 | Sebastian's Dance | 2:04 |
+| 20 | Pavane | 3:50 |
+
+Robin Hood Dell Orchestra of Philadelphia
+Dimitri Mitropoulos, conductor
+
+Recorded in the Academy of Music, Philadelphia, on 26th July, 1946
+Matrix nos.: XCO 36696 through 36699
+First issued on Columbia 12981-D and 12982-D in album X-278
+
+Reissue Producer and Audio Restoration Engineer: Mark Obert-Thorn
+
+### Producer's Note
+
+The sources for the transfers were American RCA Victor and Columbia LPs. The original recording of Amahl was not state-of-the-art for its time: it sounds opaque and occasionally overloaded, and the original master tape has a couple of brief dropouts. The Sebastian suite, recorded with members of the Philadelphia Orchestra under their summer concert series appellation, is taken from its only LP release (a ten-inch disc, ML 2053), which was itself transferred from 33 1/3 rpm wide-range lacquer masters, rather than from 78 rpm matrices.
+
+Mark Obert-Thorn
+
+---
+
+## Gian Carlo Menotti (1911-2007)
+### Amahl and the Night Visitors • Sebastian – Ballet Suite
+
+The origins of Gian-Carlo Menotti's popular Christmas opera *Amahl and the Night Visitors* go back to 1949 and to the early days of American television. Peter Weaver, then the head of programming for the National Broadcasting Company (NBC), envisaged a series of prestige broadcasting events which would attract new viewers who could afford to buy a television. This in turn was of key interest to the Radio Corporation of America (RCA), NBC's parent company, one of whose businesses was the manufacture of televisions. At the same time the Federal Communications Commission (FCC) was keeping a close eye on the young television companies to ensure that they fulfilled their educational potential.
+
+So while there were strong reasons to consider broadcasting opera on American television, what did the trick was when NBC's head of music programming Samuel Chotzinoff and TV director Peter Adler, together with a small group of singers, cornered the redoubtable head of NBC, 'General' David Sarnoff, in an NBC hallway and performed a three minute excerpt from *La Bohème* to him then and there. Overwhelmed, Sarnoff asked if this could be done on television and when told it could, opera on American TV was under way. The NBC Television Opera Theater made its début in 1949 and one of its earliest broadcasts was of Menotti's *The Old Maid and the Thief*, originally commissioned by NBC radio in 1939.
+
+Following the success of *The Medium* (1947) and *The Consul* (1950), by 1950 Menotti had become an established composer in the United States. So it was a natural progression for NBC to commission him to compose a short opera in English for television to celebrate Christmas at the end of 1951. Menotti was often a slow worker and, as the deadline for the delivery of this commission approached, the inspiration to create *Amahl and the Night Visitors* came to him after seeing Hieronymus Bosch's famous painting *The Adoration of the Kings* at the Metropolitan Museum of Art in New York. 'Suddenly I heard again...the weird song of the Three Kings,' he later recalled. The planned opera was quickly cast and Thomas Schippers, who had conducted *The Consul* on Broadway, was engaged to conduct. The score was eventually finished just days before the live broadcast took place, on Christmas Eve 1951, with Menotti's partner, the composer Samuel Barber, helping to complete the orchestration. Despite the preliminary absence of music, the staging had been well rehearsed by both Menotti and the TV director Kirk Browning. The first broadcast of the opera was introduced by Menotti himself, who told viewers of his fascination with the legend of the Three Kings and how, when he saw the Bosch painting, 'I suddenly realized they had come back to me and brought me a gift. I now hand this gift to you.'
+
+The reception of the first broadcast of the opera proved to be overwhelming. An estimated five million people watched, and immediately afterwards the NBC telephone switchboard was jammed with congratulatory calls. The next day *The New York Times* published an unprecedented front page review by its distinguished music critic Olin Downes, who described the broadcast as an 'historic event in the rapidly evolving art of television'. The entertainment trade paper *Variety* correctly predicted that the work 'could well become standard fare in the repertoire of Christmas musical-operatic offerings'. The cast and musicians were quickly reassembled to record the opera for RCA Victor Records, an affiliate of NBC, and this recording in turn became a best-seller. In addition *Amahl* swiftly moved out of the television studio and into the theatre, with Schippers leading a production at the New York City Opera in April 1952. It also became an annual fixture on NBC's Christmas programming, remaining a key element for the next sixteen years. After 1966, Menotti, disliking a new production first seen in 1963 and later repeated on videotape, refused to allow it to be seen further. 'I would rather see no production at all of Amahl than a bad one,' he told the press. A new production
+
+---
+
+## [Page 6-7]
+
+broadcast in 1978 and partially filmed in the Holy Land was not a success and was not repeated. Nonetheless the opera lives on. Because Menotti had written a work that could be performed by amateur companies, it has become a Christmas fixture in many communities. Its publishers, G. Schirmer, estimate that it is performed at least five hundred times each Christmas season.
+
+### Synopsis - Amahl and the Night Visitors
+
+The plot of *Amahl and the Night Visitors* is straightforward. The crippled boy Amahl lives in poverty with his mother. They are visited by the Three Kings, the Magi, or Three Wise Men, on their way to see the infant Jesus and, during the night, the mother succumbs to temptation and steals some of their gold. She is caught, but explains that the money is for her son. The Three Kings tell her to keep it, since Jesus will build his kingdom on love. Amahl offers his crutch as a gift to Christ and discovers that he can walk unassisted. His mother allows him to accompany the Three Kings on their journey.
+
+### Sebastian - Ballet
+
+The scenario of the ballet *Sebastian*, as with many of his works, was written by Menotti himself. The first production of it took place in New York during October 1944, and was given by the Ballet International Company, founded by the Marquis de Cuevas, whose wife was the grand-daughter of John D. Rockefeller, and so a valuable source of finance. This, the only season to be presented by the company, lasted two months, and ended with a deficit of $800,000. The choreography by Edward Caton for *Sebastian* received mild praise, while Menotti's score was deemed to be much more successful. Writing in *The New York Times*, the critic John Martin commented: 'The music by Gian Carlo Menotti is into all odds the best part of the work, and in its excursions into unblushing melodrama it is brilliantly effective.'
+
+*Sebastian* has been revived on several occasions, in the ballet in the theatre, but it is today best known through the Suite which he prepared from the complete full version and the Suite which was first performed by the New York Philharmonic Orchestra in concert at the Lewisohn Stadium in August 1945, with Alexander Smallens conducting.
+
+*Sebastian* is in one act of three scenes, and is set in Venice at the end of the seventeenth century. The Prince, in love with a notorious courtesan, has two possessive sisters, who are determined to disrupt this alliance. They steal the courtesan's veil, knowing that its possession will enable them to exercise black magic over her. Constructing a wax image of her, they cover it with her veil and plan to kill her by piercing the image with arrows. But the Moorish slave, Sebastian, who is also in love with the courtesan, substitutes himself for the wax figure and takes the deadly arrows. By his self-sacrifice he breaks the evil power of the two sisters, and so reunites the Prince and his beloved.
+
+### Full Synopsis - Amahl and the Night Visitors
+
+It is night, and the sky is dotted with stars, with the Eastern Star shining brightly. The shepherd Amahl, wrapped in a cloak, sits outside the cottage where he lives with his mother, playing his pipe. His crutch lies on the ground beside him. Inside the cottage his mother works at household chores. The room is lit by the embers of a dying fire and by the low flame of an oil lamp.
+
+1 **The Mother** calls to Amahl, and tells him that it is time to go to bed. Amahl acknowledges her, but continues to play his pipe. Impatiently the Mother leans out of the window and calls to him again. Amahl pleads with her to let him stay up a little longer. She tells him to obey her, and closes the window abruptly. Reluctantly Amahl picks up his crutch and hobbles into the cottage. He hangs up his cloak and places his pipe in the corner, while his Mother kneels at the fireplace, trying to coax the fire into life. Amahl stands at the door, looking up at the sky.
+
+2 **Amahl's Mother** asks him what was keeping you outside. Amahl tells her that the sky looks extraordinary, like burning torches, while hanging over their roof is a star with a tail. The mother wearily accuses Amahl of lying but he responds by insisting that he is telling the truth. She is not convinced, and worries that they will soon have to beg for food in order to eat. She sits on a stool weeping, while Amahl comforts her.
+
+3 **Amahl** tells her not to worry – if they have to beg, he will entertain with his pipe and they will eat well. His Mother says he is dreaming and tells him to kiss her good-night. Amahl lies down to sleep and the Mother secures the door.
+
+4 **From afar** the Three Kings and the Page are heard. Amahl hobbles over to the window as they appear: Melchior bearing gold, Balthazar bearing myrrh, and Kaspar bearing incense. The Page walks before them carrying a heavy load, including a rug, a parrot and a jeweled box, as well as a lantern. The Three Kings, guided by the star, stop and ask how far they must wander, guided by the star. Melchior knocks on the door of the cottage.
+
+5 **The Mother** tells Amahl to answer the door. Amahl does as she asks but quickly closes the door again, and rushes to his mother, asking her to confirm what he has seen. When she asks him what is the matter, he tells her that there is a King outside. She accuses him once again of lying, and he agrees with her but not once but twice, as he gradually realises that there are three Kings outside.
+
+6 **The Mother** opens the door of the cottage with Amahl holding onto her skirts. When she sees the three Kings she is amazed, and bows to them. Balthazar asks if they may rest a while in her house. She replies that if they are welcome to her humble home. They thank her, and enter, led by the Page. After they have settled down, the Page spreads out the rug and places on it the gifts which the Kings have brought for the Child. Melchior thanks the Mother for her hospitality and tells her that they cannot stay long, as they must not lose sight of the star and have far to travel. The Mother goes out, telling Amahl not to be a nuisance.
+
+7 **While Kaspar** feeds the parrot, Amahl asks Balthazar if he is a real King. He replies that he is. Amahl asks where his home is, and Balthazar tells him that he lives in a marble palace. Amahl asks Amahl where he lives, Amahl replies that he is a shepherd, but that he no longer has a flock as that his Mother sold it, and soon they will have to beg. Amahl then turns his attention to Kaspar, and again asks him if he is a King, this time loudly, as Balthazar indicates that Kaspar is deaf. Kaspar responds and confirms that he is a real King. Amahl asks if the parrot talks and bites. Kaspar replies that he does. Amahl asks what the jeweled box is, and Kaspar opens its drawers, displaying its jewels, beads and licorice before Amahl's astonished eyes. As Amahl seizes the licorice, his Mother returns, carrying some sticks. She reminds him not to be a nuisance and tells him to go and call the other shepherds, and to ask them to bring whatever they can. As Amahl hobbles out, the Mother moves to the fireplace. Seeing the riches laid out in front of the Kings, she is irresistibly drawn towards them. Melchior tells her that they are for the Child. The Mother asks her Child, and Melchior replies that they do not know, but the Star will guide them.
+
+8 **Melchior** asks the Mother if she has seen a Child of the colour of wheat. She replies that she has – her son, Melchior and Balthazar, and then with Kaspar, repeat the question twice and the Mother replies that she has, referring each time to Amahl.
+
+9 **The call** of the shepherds breaks the hushed silence of the room. While Melchior wakes Kaspar up, the shepherds gradually enter, led by Amahl. As they sing, they crowd around the door of the cottage, amazed at the sight of the Three Kings and not daring to enter. The Mother invites them in, and they enter them warmly. The Mother invites them to dance. The Kings thank them. The shepherds perform a dance of ceremony and welcome. At first bashful in the presence of the Three Kings, the shepherds gradually become more energetic in their dancing.
+
+10 **Balthazar** thanks the shepherds for their gifts, bidding the Three Kings good night. After they have left, the Mother prepares for bed. Amahl asks the deaf Kaspar unsuccessfully if there is a cure for a crippled boy. All now prepare for sleep. The lights dim to denote the passage of sleep.
+
+11 **As the first rays** of dawn light the interior of the cottage, the Mother cannot take her eyes off the treasure guarded by the Page. She wonders what the Kings know what could be done with it by those in need. As she touches it, the Page suddenly wakes up, and takes hold of the Mother, accusing her of stealing the gold. Amahl throws himself at the Page, seeking
+
+her release, and insisting that she did nothing wrong. At this point it can be revealed that her description given by David Patmore.
+
+---
+
+## [Also Available]
+
+### Also Available from Naxos
+
+Gian Carlo
+MENOTTI
+*The Consul* • *Amelia al ballo*
+
+8.112023-24
+
+---
+
+**Total scanned images processed:** 6 images (cover, back cover, 4 booklet pages)

@@ -1,0 +1,215 @@
+# Casals
+## Festivals at Prades, Vol. 2
+### Live Concert Performances
+Includes over 12 hours of previously unreleased material
+
+SPECIAL PRICE
+**12 CDs for the price of 8!**
+
+---
+
+# CASALS FESTIVALS AT PRADES VOL 2
+
+**CD 1 (1:10:27)**
+BACH: Sonata 2 in A Minor, BWV 1003; [7 July 1956]
+BACH: Partita 2 in D Minor, BWV 1004; [9 July 1955]
+BACH: Sonata 3 in C Major, BWV 1005; [8 July 1955]
+Yehudi Menuhin, Violin
+
+**CD 2 (1:08:36)**
+BACH: Partita 3 in E Major, BWV 1006; [8 July 1955]
+BACH: Suite 3 in C Major, BWV 1009; [2 July 1955]
+Pablo Casals, Cello
+BACH: Suite 5 in C Minor, BWV 1011; [3 July 1956]
+Pablo Casals, Cello
+
+**CD 3 (1:16:26)**
+BACH: Concerto (In the Italian Style) in F Major, BWV 971, [11 July 1956] Rudolf Serkin, Piano
+BEETHOVEN: Sonata 30 in E Major, Op 109; [20 June 1954]
+Rudolf Serkin, Piano
+SCHUMANN: Symphonic Etudes, Op. 13; [12 July 1956]
+Rudolf Serkin, Piano
+BEETHOVEN: Sonata 31 in A♭ Major, Op 110; [15 July 1959]
+Wilhelm Kempff, Piano
+
+**CD 4 (1:16:37)**
+BACH: Preludes and Fugues from The Well Tempered Clavier, Book II, nos. 14, 15, 24; [17 July 1956]
+MOZART: Fantasy, K.475; [1 August 1962]
+MOZART: Sonata in C Minor, K.457; [1 August 1962]
+BEETHOVEN: Sonata 32 in C Minor, Op 111; [9 June 1954]
+Mieczslaw Horszowski, Piano
+
+**CD 5 (1:14:17)**
+SCHUMANN: Kreisleriana, Op. 16; [1 August 1962]
+BRAHMS: Fantasias, Op. 116; [11 July 1958]
+Mieczslaw Horszowski, Piano
+MOZART: Violin Sonata Nr. 32, K.376; [7 July 1956]
+Yehudi Menuhin, Violin with M. Horszowski, Piano
+CASALS: The Birds [18 July 1956]
+Pablo Casals, Cello, Mieczslaw Horszowski, Piano
+
+**CD 6 (1:17:51)**
+SCHUBERT: 6 Lieder; [8 July 1959]
+Victoria de los Angeles, Sop., with M. Horszowski, Piano
+BRAHMS: Sonata No. 1 in E Minor, Op. 38, for cello and piano; [19 July 1958]
+Pablo Casals, Cello, with M. Horszowski, Piano
+BEETHOVEN: Sonata in A Major, Op. 47 (Kreutzer) for violin and piano; [15 July 1959]
+Christian Ferras, Violin, with Wilhelm Kempff, Piano
+
+**CD 7 (1:12:05)**
+MOZART: Divertimento in E♭ Major for vln., va., vc., K.563; [16 June 1953]
+Joseph Fuchs, Violin; Lillian Fuchs, Viola; Paul Tortelier, Cello
+MENDELSSOHN: Trio No. 2 in C Minor, Op. 66; [15 July 1959]
+Christian Ferras, Violin; Wilhelm Kempff, Piano; Pablo Casals, Cello
+
+**CD 8 (1:07:15)**
+MOZART: Quintet in G Minor, K.516 for 2 violins, 2 violas, cello; [11 July 1956 (?)]
+Végh Quartet (Sándor Végh, Violin I; Sándor Zöldy, Violin II; Georges Janzer, Viola; Paul Szabó, Cello) with Ernst Wallfisch, Viola II
+BRAHMS: Quartet in C Minor, Op. 51 No. 1; [20 July 1958]
+Végh Quartet (personnel as above)
+
+**CD 9 (1:13:31)**
+BACH: Cantata and Mass excerpts; [2 July 1955]
+Bach Aria Group: Eleanor Steber, Sop.; Carol Smith, Alto; Jan Peerce, Tenor; Norman Farrow, Bass; Maurice Wilk, Violin; Bernard Greenhouse, Cello; Erich Itor Kahn, Piano; Julius Baker, Flute; Robert Bloom, Oboe
+
+**CD 10 (1:19:14)**
+BACH: Cantata BWV 202 in G Major: Weichet nur, betrübte Schatten; [19 June 1953]
+Maria Stader, Sop., with Festival Orch. cond. Pablo Casals
+BACH: Brandenburg Concerto No. 3 in G Major; [19 June 1953]
+Festival Orch. cond. Pablo Casals
+BACH: Brandenburg Concerto No. 4 in G Major; [24 June 1953]
+Festival Orch. cond. Pablo Casals
+MOZART "Ch'io mi scordi di te?" KV 505 – Recitativo con Rondo; [9 July 1959]
+Victoria de Los Angeles, Collegium Musicum of London, cond. Pablo Casals
+MOZART: Divertimento in D Major K136; [3 August 1962]
+Végh Chamber Orchestra
+
+**CD 11 (1:04:01)**
+BEETHOVEN: Piano Concerto No. 1 in C Major, Op. 15; [24 June 1953]
+M.Horszowski, Piano, with Festival Orch. cond. Pablo Casals
+BEETHOVEN: Piano Concerto No. 2 in B♭ Major, Op. 19; [9 July 1959]
+M. Horszowski, Piano, with Festival Orch. cond. Pablo Casals
+
+**CD 12 (1:10:58)**
+MOZART: Sinfonia concertante in E♭ Major K 364; [19 June 1953]
+Joseph Fuchs, Violin, Lillian Fuchs, Viola; Festival Orch. cond. Pablo Casals
+BEETHOVEN: Symphony No. 4 in B♭ Major, Op. 60; [8 July 1959]
+Collegium Musicum of London, cond. Pablo Casals
+
+Restoration engineer: Maggi Payne
+Notes: Harris Goldsmith
+
+---
+
+# Casals Festivals at Prades, Vol. 2
+## LIVE CONCERT PERFORMANCES
+
+### Introduction
+
+In 1945, with the monstrous tragedy of World War II finally concluded, the world's greatest cellist Pablo Casals emerged from his self-imposed exile and crossed the English Channel to record three works for *His Master's Voice*: the Elgar Concerto, the Haydn D Major and Bruch's Kol Nidre. And a year later, another celebrated anti-Fascist, Arturo Toscanini returned in triumph to his beloved Italy for rapturously received concerts. If Benito Mussolini was dead, and the monarchy of Victor Emmanuel and his less odious son, Umberto, was soon to be replaced in a referendum calling for free elections, making Italy a democratic republic. Casals, as outspoken as Toscanini in his politics, had fled across the border to France when the Spanish Civil War ended in victory for Francisco Franco and his allies, vowing never again to play concerts while a dictator ruled Spain – especially not for the peoples who should have rallied to the aid of his Republic, and didn't.
+
+He had naturally expected that the allied free world would follow suit and likewise depose the Franco regime. But when England and America decided to tolerate the status quo, the bitterly disappointed musician angrily, abruptly, returned to France, leaving the Haydn recording unfinished. His idealism was a bit naive: As John M. Conley later wrote in *High Fidelity*, "this was misdirected punishment, for Ministers of State are by and large a tin-eared gentry, unlikely to suffer keenly from such a deprivation; it was musicians and music lovers that Casals' abstention hurt."
+
+Serendipitously, 1950 marked the two hundredth anniversary of Bach's death. With the festivities looming, the brilliant idea came to Mieczysław Horszowski, Don Pablo's friend and longtime sonata partner, that the finest musicians might come to honor Bach and Casals on his own turf. Alexander "Sasha" Schneider, who played violin with Horszowski and the violinist Milton Katims and the cellist Frank Miller in the *New York Piano Quartet* aggressively picked up the notion and the even more influential American virtuoso Isaac Stern had the clout to make an extravagant dream a glorious reality. The Puig family, Casals' good friends (I believe René Puig was the architect who built Casals' house) helpfully selected Prades, a small town in France, as the site for the first Festival in 1950, a humble venue but all the more genial and appropriate for such an homage (and it was a true homage). Many illustrious artists made a pilgrimage that summer. The violinists Stern, Schneider and Joseph Szigeti; the pianists Rudolf Serkin, Paul Baumgartner, Clara Haskil joining Horszowski and also a pupil of Serkin, Eugene Istomin – then a very young burgeoning American pianist who, at 22, was the only other active participant. An orchestra came too, and so did many others. Leopold Mannes, was a pianist, pedagogue and photographer, gave his father David a gift, sending the old man for a reunion with his dear friend Casals. And there was Marta Montanez, a teenaged cello student at the David Mannes School who came as a wide-eyed (and open-eared) auditor. American Columbia brought along its rather primitive equipment to capture the proceedings in recording sessions following the actual concerts. Among the mementos from this auspicious opening year are Casals' interpretations of the Three Gamba Sonatas, three voice compositions played in the old-fashioned way as accompanied cello solos (Paul Baumgartner's sensitive contribution was relegated to the subservient rear), the A minor Violin Concerto with Stern as soloist and Casals conducting, the F minor keyboard concerto with Haskil and Casals, and a conjectural restoration of the D minor keyboard concerto for violin played by Szigeti. And Casals presided over a curious set of the Six Brandenburgs (with the difficult trumpet part of No.2 played on the saxophone by Marcel Mule?).
+
+The second festival in 1951 moved to nearby Perpignan and was for the most part devoted to Mozart (Casals and Serkin began their recorded cycle of the Beethoven Sonatas and Variations that year with the G minor Sonata Op.5 No.2, completing it at the next festival in 1952, moved back to Prades and remained there). Among the newcomers were the greatly undervalued violinist Erica Morini (who recorded the so-called "Turkish" Concerto in A Major, K. 219), Dame Myra Hess (for K. 271), Yvonne Lefébure (whose account of K. 466 remained in limbo for many years until Sony finally published it on CD), William Primrose (who teamed up with Stern in the beloved Sinfonia Concertante, K. 364). Casals, of course, conducted the orchestra in all those works, as he also did in the Piano Concertos K. 449 (Horszowski) and K. 503 (Horszowski) and also the Divertimento K. 251 and the Symphony No. 29. K. 201. But, for this writer, the choicest item was an exquisite account of the Oboe Quartet K. 370 (with Marcel Tabuteau, Stern, Primrose and Paul Tortelier). It should also be chronicled that this 1951 Mozart year included the short-lived American pianist William Kapell who contributed a vital account of the Piano Quartet No. 2 in E Flat K. 493 (not recorded by Columbia but nevertheless released in CD-1113).
+
+The 1952 festival brought forth a lot of Beethoven Piano Trios (Schneider, Casals and Istomin with Joseph Fuchs taking "Sasha's" place) as well as the aforementioned completion of the Casals/Serkin Sonatas and Variations). But Schubert figured prominently in his two Trios (Schneider/Casals/Istomin, in the B flat); Schneider/Casals/Horszowski in the E flat, the *Rockle* Brahms Variations (John Wummer and Leopold Mannes), the Fifth Symphony (Casals conducting) and the sublime, benchmark recording of the great C major String Quintet (a utopian lineup of Stern/Schneider/Katims/Casals/ and Tortelier).
+
+June 1953 featured for the most part Schumann and Brahms. The biggest news was the belated reappearance of Casals as a concerto soloist in the Schumann A minor. Eugene Ormandy contributed his valuable services as a conductor although AFM regulations strictly forbade him to do so (this well known secret is now divulged). The chamber music comprised Schumann's D minor Trio (Schneider/Casals/Horszowski), the Piano Quintet (Hess/Stern/Schneider/ Milton Thomas/Tortelier) the same composer's *Five Stücke im Volkston* (Casals and Mannes) and some choice Brahms – his B major Trio, Op.8 in the revised version (Stern/Casals/Hess), an interesting but somewhat lethargic C major Trio (with Hess joining Szigeti and Casals but not quite coalescing), and a far more successful and convincing C minor Piano Quartet, Op. 60 (Szigeti/Katims/Tortelier/Hess). Another hugely successful performance from this 1953 bonanza was the Brahms Sextet in B Flat, Op.18 (with Stern, Schneider, Milton Katims, Milton Thomas, Casals, and his former pupil Madeline Foley). After 1953, there were no further studio recordings from Columbia though of course the festivals continued as a thriving enterprise (with the sole exception of 1957 – the year Casals suffered his first heart attack).
+
+The very brilliant French violinist, Christian Ferras, joins Kempff in a performance of Beethoven's *Kreutzer* Sonata, Op. 47 that contrasts rather surprisingly but admirably with Kempff's other (and better known) recordings of the audacious Beethoven work in which he collaborated with Georg Kulenkampff, Wolfgang Schneiderhan and Menuhin. This one is much more fiery.
+
+And from the same 15 July 1959 with the *Kreutzer*, Ferras and Kempff join forces with Casals in Mendelssohn's Trio No. 2 in C Minor, Op. 66. The usual approach these days is to interpret Mendelssohn as just so much gossamer; with winged precipitate tempos and fleet passagework. Not so here in this revelation: solidly granitic account which treats the music as if Brahms had composed it. In a way, this departure from the "norm" makes a valid point: the Trio's *Allegro appassionato* fourth movement begins with a theme that Brahms later quoted (subconsciously or not) in the third movement of his own early Piano Sonata No. 3 in F Minor, op. 5; Mendelssohn's Finale also borrows from Chopin – his C sharp minor Scherzo, Op. 39 – and a Bach Chorale.
+
+CD 7 also contains the lusty interpretation of Mozart's sublime *Divertimento* K. 563 for string Trio from the 1953 festival. The brother and sister duo of Joseph and Lillian Fuchs are joined by cellist Paul Tortelier. It provides an absorbing interpretative contrast with two other versions of the miraculous composition: the legendary Heifetz/Primrose/Feuermann recording for RCA Victor and one played by Joseph Roisman/Boris Kroyt and Mischa Schneider of the Budapest String Quartet at a Library of Congress concert later released by Bridge Records).
+
+The Végh Quartet and their assisting violist Ernst Wallfisch were supposed to have played Mozart's *Quintet in C Major, K. 515* at a 1956 festival but for whatever reason substituted it for the companion *Quintet in G Minor, K. 516*. The musicians bring forth a very lyrical, sedately-paced reading that captures the poignant, nostalgic pathos admirably (and, in the **maggiore** Finale, much of the necessary joyousness). The Hungarian foursome on its own partake in an idiomatic account of the Brahms *Quartet in C Minor, Op. 51* No. 1 on this eighth disc.
+
+CD 9 of this set preserves a visit *The Bach Aria Group* paid the Festival on July 2, 1955 with a generous "combination platter" of arias drawn from assorted *Cantatas*. Some of today's cognoscenti may find the prevailing style a bit over-ripe and anachronistic, in fact similar to Casals' way with the music (which Stravinsky once quipped "sounded more like Brahms than Bach"). These were done with a piano instead of a harpsichord, lending a heavy stoutness and decidedly pleasing aura to the continuo. But the outstanding artists made beautiful music together: The singers (Eleanor Steber, soprano; Carol Smith, alto; Jan Peerce, tenor; and Norman Farrow, basso) all had a clarion fervor, and their vibrant voices intertwined exquisitely with the magical, tonally opulent, obligatos of Julius Baker, flutist, Robert Bloom, oboist; Maurice Wilk, violinist, Bernard Greenhouse, cello; and Erich Itor Kahn. The greatest pleasure for me was in hearing a reminder of Bloom's incomparably eloquent, seductive phrasing.
+
+The tenth CD is devoted to Bach and Mozart. It begins with a complete performance of *Cantata* BWV 202 in G Major *Weichet nur, betrübte Schatten*, sung by Maria Stader with Casals conducting. And we hear alternative performances of the *Third* and *Fourth Brandenburg Concertos* in Casals' characteristic emphatic interpretations (these were retrieved from the festival concert of June 9, 1953). On this particular occasion, the soloists in No.4 were violinist Jacob Krachmalnik (of the Philadelphia Orchestra) and John Wummer (then the New York Philharmonic-Symphony's principal flute).
+
+But one of the greatest treasures, of a work not that often played or recorded, is a definitive (I use that oft disparaged word wisely) performance of Mozart's *Recitativo con Rondo, K.505 "Ch'io mi scordi di te?"* captured at a concert and broadcast of July 9, 1959. Its protagonists, Victoria de los Angeles, soprano; Horszowski, playing the obbligato; with Casals conducting a different orchestra – the *Collegium Musicum of London* – are a team the likes of which this writer has never heard.
+
+Many of the post-1953 festival performances aired as broadcasts belatedly found their way to "unofficial" recordings (Music & Arts CD 688 and 669 issued in 1992; and Dutton reissuing both of the two earlier volumes and adding five additional discs). In many ways this supplementary material is noteworthy in documenting Casals' "mellowing" and his willingness to compromise in his attitudes toward politics and to some of his estranged older friends, colleagues and students. Before his death in a 1953 airplane crash, Jacques Thibaud quipped about his long bygone Trio who had not played together for at least twenty years: "One of them (Casals) is a little mad, and the other (Cortot) is a little bad". Casals took a bitter attitude toward Cortot's reprehensible collaborationist activities in occupied France and, he likewise disowned the cellist Gaspar Cassado for remaining in Fascist Spain and concertizing in Nazi Germany (Cassado had been his favorite student). Yehudi Menuhin, in the early postwar years, had approached Casals with an agenda of having HMV recorded the Brahms Double Concerto with Menuhin, Casals and Wilhelm Furtwängler as conductor. The proposed meeting would undoubtedly result in a distinguished jewel in EMI's catalogue. But Menuhin had taken up Furtwängler's beleaguered cause with a vengeance and he hoped that the German maestro would be gloriously vindicated if he were to work with the famed anti-Fascist Don Pablo. In his memoirs *Unfinished Journey* [Alfred A. Knopf, New York, 1977], Menuhin notes:
+
+"I asked Casals his opinion of Furtwängler, although he would never play again with Cortot, he said, Furtwängler, he admired, not only as a conductor but as a German; he had been right to stay in Germany and do what he could for music and musicians. Reassured, I suggested that I might try to arrange a recording of the Brahms Double Concerto to be made by Casals, Furtwängler and myself. He accepted in principle."
+
+"I made several attempts to pursue the matter; EMI, who treated Casals generously, advancing money when he needed it against later earnings, were interested; for Furtwängler it would have been a most valuable accolade given by the foremost antifascist musician but: all approaches were deflected by Casals – he would love to make the record but couldn't at the moment. Finally, some two summers later, and after perhaps the third prodding, he sent me a letter which with disarming frankness betrayed the limits of his independence: he assured me that he personally had nothing against Furtwängler and could envisage few greater pleasures than playing with him, were it not for the fact that to do so might compromise his antifascist stance and dismay his followers. In other words, he was prepared to let me know he didn't have the courage of his convictions; so long as those convictions were approved by his admirers, they were strong convictions indeed, but in other circumstances not strong enough to withstand guilt by association with a man wrongfully accused. It was an honest letter and a disappointing one."
+
+In 1955, Menuhin came to the Prades Festival as a participant and the violinist again writes that Casals "had become, in a way, the prisoner of a coterie of my New York colleagues who more or less ran the first few festivals at Prades, making wonderful music with Casals, but also using his prestige for their own purposes, including punishment campaigns against suspect musicians, which because of my championing of him, came to focus particularly on Furtwängler and on me... For some years after 1947, I didn't visit Prades, but thereafter I went frequently, and I believe I was welcomed as the bringer of fresh air into an atmosphere by then somewhat claustrophobic with mingled flattery and exploitation. For my part, nothing could exceed the pleasure of playing with Casals, and our relationship was warm and disinterested. On one visit, before I left I asked to speak to him alone, and told him of Cassado's unhappiness and my own view of the injustice done him, and begged Casals to offer the hand of reconciliation. He did so immediately; bringing Cassado flying to Prades to be embraced and giving that story at any rate a happy ending. Caspar Cassado died in Barcelona in 1966."
+
+Casals even offered an olive branch to Cortot who returned to Prades for a reunion in 1958. The Beethoven Sonata in A Major, Op.69 with Casals and Cortot in Music & Arts CD-1113 is, to put it tactfully, more inspiring as a sentimental artifact than a valid musical interpretation: Both protagonists, Cortot especially, were sadly off form.
+
+Conversely, Menuhin was still very much in his prime for the four performances he gave in 1955 of Bach's *Partitas* in D Minor and E Major and *Sonatas* in A Minor and C Major. These live performances roughly date from the same period as the second and best of Menuhin's unaccompanied Bach studio recordings superior musically to his childhood versions for 78 r.p.m. and technically more polished and authoritative than his late stereo remakes of the 1970s, and these interpretations have the additional stimulus of an appreciative audience.
+
+Casals' championship of the *Bach Suites for Unaccompanied Cello* go back to 1915 when the 39-year-old cellist played four movements of the Suite No.3 in C Major for the acoustical horn. All six Suites were edited in the 1930s and remain a seminal part of the phonographic legacy. His 1955 account of the C Major is quite amazing for a string player about to turn an octogenarian: The fervor and vibrant rhythmic vitality are awesome, and miraculous by his bow control and intonation are faultless (we can overlook a rather gritty tone). But the Fifth Suite in C Minor, a more deeply tragic and subjective composition, brings forth from the venerable musician a more possessive rubato and his ecstasy swims in a sea of grunts and groans. (No matter, these 1955, 1956 festival performances are fascinating enough as an absorbing gloss to Casals' 1930s version.)
+
+The third, fourth and fifth CDs in this collection are devoted (mostly) to pianists. The Bach *Italian Concerto*, which opens CD No.3, is the selfsame work that Serkin recorded for Columbia at the First Prades Festival. This July 12, 1956 concert performance is weightier, more grandly paced. The pianist rehearsed his 1950 version when it was reissued toward the end of his life and reputedly dismissed it for being much too fast. I recall a late Serkin concert performance at Carnegie Hall as being very similar to the 1950 studio version but this writer's memory might have been playing tricks on him; After carefully comparing the 1950 and 1956 accounts, my conclusion is that the 1956 is indeed slower than the fleet-and-likable studio recording and, all things considered, preferable.
+
+Serkin's June 20, 1954 Prades Beethoven *Sonata* No. 30 in E, Op. 109 closely resembles his brooding, intense studio recording of 1952 [Medi AR CD 1141], being a touch freer and more improvisational.
+
+But for discographical reasons, the July 12, 1956 Schumann *Symphonic Etudes*, a composition he never recorded in the studio, is even more important to Serkin's surprisingly sparse legacy. His technically secure, no-nonsense interpretation has a truly orchestral aura in its ironclad, forward-moving continuity. But the reading indeed carries surprises along the way: For the most part, Serkin opts for Schumann's later revision of the piece, the text of 1851 but restoring the two variations (etudes) purged from the 1835 edition but also including the earlier incarnation of the Finale.
+
+Wilhelm Kempff, a late visitor to Prades, contributed an atypical (for him) interpretation of Beethoven's Sonata No.31 in A flat, Op.110 on July 15, 1959. "Atypical" because the later D.G. recording in his stereo Beethoven Sonata cycle I recall as being genteel and cameo like. Not so here: he sounds almost impatient at this concert; takes some very brusque tempos and elides some rests in several places. I cannot say that I like what he does, but there is power a plenty.
+
+CD No. 4 opens with Horszowski's sensitive expositions of three Bach *Preludes and Fugues* from Book II of the *Well-Tempered Clavier* played on August 1 1962 and commences with a shatteringly powerful traversal of Mozart's C minor Fantasy, K. 475 played in tandem with the same composer's *Sonata*, K. 457 from the same recital. It makes a suitable companion for Horszowski's account of Beethoven's last Sonata, his No.32 in C minor, Op.111 from eight years earlier, June 9, 1954. It too is an epical, heroic recording for HMV but just as structural in its architecture.
+
+The fifth CD holds the performance of Schumann's *Kreisleriana*, Op.16 from Horszowski's August 1, 1962 concert. I think that some of the E.T.A. Hoffmann-inspired whimsy and playfulness is missing from this ever-so-serious interpretation but many may find in it a modicum of Old School strength. I've never heard Schumann's eight-piece Suite delivered in like fashion. Nor have I ever come across an account of Brahms's *Seven Fantasias*, Op.116 played in Horszowski's shaggy, inimitable manner (it dates from a July 11, 1958 Prades Festival recital). Others, Gieseking, Kempff, Gilels and Karu Lapa were more animated and colorfully nuanced but Horszowski's interpretation carries its own tortoise-like deliberation and inevitability. This CD concludes with a muted, sedate account of Mozart's *Violin-Piano Sonata* K.376 played by Horszowski in tandem with Menuhin (on July 7, 1956).
+
+The next (and sixth) CD revives the group of Six Schubert *Lieder*: *Der Tod und das Mädchen; Lachen und Weinen; Rastlose Liebe; An die Milde; Die Liebe hat gelogen*, and *Mein* that Victoria de los Angeles sang with Horszowski on July 8, 1959. The lovely Spanish diva was a particular favorite of mine and I fondly remember hearing these performances when they were aired (over WNYC). Surely she was graced with an exquisitely beautiful instrument and in 1959 de los Angeles was in her glorious vocal prime. But not every connoisseur thought her way with Schubert and other German lied was the lady's strongest point: Conrad L. Osborne, my favorite vocal critic, writing in *High Fidelity* in 1962, liked very much the soprano's "sensitive work in *Der Tod und das Mädchen* (though the low ending is surely more effective)" but C.L.O. took issue with her interpretation of *An die Milde*: "Much too distended; granted that Schubert's tempo markings are not voluminous (this entire song, for instance, bears only the indication 'Mässig' at the top of the page – nary an accelerando or ritardando), his phrases still are not made of rubber. The effect of all this dallying at the tops of phrases to convey the impression that the singer loves music in a soupy, sentimental way, which may suit Schober, but not Schubert." In a more generalized way, your annotator – hardly a lieder specialist – observes that German is often quite blurred and indistinguishable. But the singer's warmth and sincerity are self-evident and triumphantly come to the fore. Years earlier, when Casals was married to the American soprano Susan Metcalf, he used to accompany her himself on the piano. Horszowski playing for de los Angeles is ideal.
+
+The Casals/Horszowski version of the Brahms *Sonata No.1 in E Minor, Op.38* was for many years one of the jewels in the 78 r.p.m. catalogue. Music lovers have yearned for a Casals performance of the same composer's earlier *Sonata No. 1 in E Minor, Op.38* and were sorely disappointed when the cellist rejected a recording of that work he made with pianist Eugene Istomin at the 1953 Prades Festival. How wonderful it is to have, at long last, a Casals/Horszowski E Minor Sonata from July 19, 1958! It turns out to be quite wonderful despite understandable trepidation about the 82-year-old maitre's technical ability. As in his live account of the Bach Third Suite (unlike the aforementioned Bach) even some of his former tonal glory remains. His intonation and bow arm are amazingly intact and (with the exposition repeat in the first movement generously observed). I especially admire the daringly spacious expansiveness the two artists show in the Trio section of the Sonata's second movement (I imagine that no modern players would dare to stretch and pull things about today). And what the sliding and rubato make perfect sense. The culminating Fugue (which one musician facetiously quipped can sound like a porpoise thrashing about in a fishbowl) has animation, clarity and proportion. I think this is the most important and exciting release in this anthology.
+
+The penultimate CD presents the first two Beethoven Piano Concertos with Horszowski and Casals. No. 1 in C Major, Op.15 begins precipitously; Casals taking the first movement introduction at a clip that almost rivals that of Toscanini's 1945 RCA studio recording with Ania Dorfmann and Guido Cantelli (a 1953 broadcast with Serkin, recently issued by *Music & Arts*, CD 1170). From hearsay, this is reputed to have been a mistake, for Casals as a rule prefers massive, slow-motion tempos and the pianist obediently follows. The second movement is played at a more customary tempo and the Rondo, more sedately than in the Dorfmann/Toscanini and Serkin/Cantelli versions. (As a matter of fact, Horszowski's third movement bears an analogy to Walter Gieseking's 1948 recording with Kubelik (M&A 1145). Horszowski and Dorfmann: third Beethoven cadenza in the first movement (in keeping with Serkin and Gieseking preferred the slighter, more modest second cadenza). The biggest discovery in Horszowski's interpretation of the First was to find him already playing an F natural in the second theme in lieu of the usual F sharp as early as 1953 (the piano day went out only as far as F, but most of the printed editions substituted F sharp to accommodate the extended range of the fortepiano later in the composer's lifetime; it was Horszowski, undoubtedly, who brought this detail to the attention of his longtime colleague at Curtis, Serkin, but the latter reverted to the authentic F natural only several years later when the Concerto with Kubelik (Orfeo) and Ozawa (Telarc).
+
+The *Concerto No. 2* in B flat, Op.19, played on July 9, 1959, is taken much more broadly (some may say "lackadaisically"). But Horszowski contributes some sensitive nuance in the Adagio.
+
+Both the assertively muscular version of Mozart's *Sinfonia Concertante*, K.364 with the Fuchses as soloists (June 19, 1953) and the Beethoven *Fourth Symphony* (from July 8, 1959) provide an instructive gloss on other, more familiar, Casals performances (his tempo for the Symphony's *Allegro ma non troppo* fourth movement sounds akin to Toscanini in its winged animation). Thus ends CD 12.
+
+In 1957, the eighty-one-year-old Casals suffered his first heart attack and the Prades Festival of that year was cancelled. But after his amazing recovery, Don Pablo's herculean activities resumed and even expanded: He married his student Marta Montanez and moved to San Juan, Puerto Rico, establishing another Casals Festival there which simultaneously took place with the older one in France! Not only that, the old but-ever youthful musician relaxed his vow never to play in other places (except Franco Spain). I remember his performance of the Bach D major Gamba Sonata with Horszowski at the United Nations in 1958 (although, strictly speaking, this site was neutral territory). But the great man did bring his sublime interpretations of Bach's *St. Matthew Passion* and Haydn's *The Creation* to Carnegie Hall from San Juan in 1963 and 1964; he played at the *Beethovenhaus* in Bonn, Germany in 1959. June 1966 marked Casals' ninetieth birthday and there were no Prades Festivals after that year. But those at Marlboro and Puerto Rico continued all the way to his death in 1973, 96 years of age. I recall hearing a broadcast of his (Casals) playing his beloved Catalan folk song "The Song of the Birds" in his own eloquent arrangement played in Israel only weeks before his passing. An early festival performance from 15 July 1956 can be savored at the end of CD No. 5 in this collection.
+
+©2006 HARRIS GOLDSMITH
+
+---
+
+### Reviews
+
+"While this set offers thoroughly familiar repertoire, the lush, impassioned performances present an alternate universe of interpretive style. The collection is a must-have for chamber music lovers, who will be pleased and provoked by it, but never bored."
+– B. A. Nilsson, *Andante.com*
+
+"there are various hiccups, scruffs and falls from technical grace to contend with, ... were I to nominate a set that encapsulates, in its musical sincerity and spiritual address, the most vital qualities of an art that readers of this magazine hold dear to our hearts, then this would probably be it. So perfection be damned!"
+– Rob Cowan, *Gramophone*
+
+"Best of all, these recordings are live. They date from an era when risk taking was common in the concert hall, producing an excitement lost in the re-taken of the recording studio – an excitement that's all too rare in today's play-it-safe musical world... Pablo Casals and company certainly didn't play it safe in these performances, recorded at the cellist's own Prades Festival in Spain between 1953 and 1960. About half of the material has appeared on earlier CD and LP issues, but the rest is previously unreleased – and none of it, as far as I've been able to determine, duplicates any of the material released on LP in Columbia (Casals' own label) in the 1960s, despite an overlap of repertory and artists. Equally magnificent is Schumann's Piano Quartet No. 2 in E-flat major; Rudolf Serkin and the Végh Quartet are a stunning team and majesty throughout the score... With this collection, any disappointment is quickly followed by a thrill. Marcel Tabuteau joins Tortelier for a definitive performance of Mozart's Oboe Quartet; pianist Karl Engel and violinist Sandor Végh play Mendelssohn's Op. 49 Trio with vigor and panache that place the 84-year-old cellist on equal footing with the comparative striplings beside him."
+– Robert Layton, *BBC Music Magazine*
+
+"Each [concert performance] is a unique experience, but the element that unifies all of them is the lack of musical ambition among these extraordinary musicians. Away from the usual pressures of traditional concert life, this festival seems to have been a musical Eden, a place where the music itself was all that really mattered? Not the perfection of its execution or the ego of the performer. The audience came (sometimes crossing mountains on foot to get there) with the desire to hear music-making at its most sincere, and that is what they got. We are extremely lucky to have some of these concerts preserved."
+– Elaine Fine, *American Record Guide*
+
+"The set... is unique for its documentation of a festival that resonated on several levels with music lovers and humanitarians everywhere."
+– Jerome F. Weber, *ARSC Journal*
+
+"As musicmaking at its sublime best, as it was a long, increasingly remote time ago, this material is all irreplaceable."
+– Laurence Vittes, *Classic Record Collector*
+
+"For audiophiles who remember that these are archival items not in state-of-the-art sound quality, they are precious lessons in the humanity inherent in music-making and as such, are permanent treasures."
+– Benjamin Ivry, *The Audiophile List*, Vol. 9, No. 6
+
+---
+
+### Also available on Music & Arts
+
+**CD-1113(13)** **CASALS FESTIVAL AT PRADES, Live Concert Performances:** CD# 1: **MOZART** Piano Concerto No. 2 in E♭ – Horszowski-Menuhin-Wallfisch-Casals (1956); **SCHUMANN** Trio No. 3 in g, Op. 110 – Végh-Serkin-Casals (1956). CD# 2: **BEETHOVEN**-Trio in c, Op. 1 No. 3: Menuhin-Casals (1959), & Trio No. 4 in D, Op. 70 No. 1 Goldberg-Serkin-Casals (1954). CD# 3: **BRAHMS**-Trio No. 3 in c, Op. 101 Menuhin-Istomin-Casals (1955); **BEETHOVEN**-Trio No. 5 in E flat, Op. 70 No. 2 Goldberg-Serkin-Casals (1954). CD# 4: **JS BACH**-Suite No. 3 in C, BWV 1009 Casals (date unknown), & Cello Sonata No. 5 in D, Op. 102 No. 2: Casals-Horszowski (1953) & Trio No. 9 in G, "Kakadu," Op. 121a: Goldberg-Serkin-Casals (1954). CD# 5: **JS BACH**-Sonata for Cello & Piano in G, BWV 1027: Casals-Horszowski (1956); **BRAHMS**-Trio in B, Op. 8: Menuhin-Istomin-Casals (1955) & Trio in a for Clarinet, Cello and Piano, Op. 114: Oppenheim-Istomin-Casals (1955). CD# 6: **SCHUMANN**-Trio No. 2 in F, Op. 80: Menuhin-Horszowski-Casals (1956); **MOZART**-Piano Trio No. 2 in E flat, K.493: Kapell-Grumiaux-Casals (1953). CD# 7: **JS BACH**-The Well Tempered Clavier, Book II: selections Horszowski (1956); **BEETHOVEN**-Sonata No. 1 in D for Violin & Piano, Op. 12 No. 1: Grumiaux-Kapell (1953). CD# 8: **MOZART**-Oboe Quartet in F, K.370: Tabuteau-Pernel-Tuttle-Tortelier (1953) & Aria from *Idomeneo*, K 366: de los Angeles-Casals (1959). CD# 9: **BEETHOVEN**-Cello Sonata in F Major, Op. 5 No. 1: Casals-Serkin (1954) & Cello Sonata in G Minor, Op. 5 No. 2: Casals-Istomin (1954) & Horn Sonata in F Major, Op 17: Casals-Horszowski (1958). CD# 10: **BEETHOVEN**-Cello Sonata in A Major, Op. 69: Casals-Cortot (1958) & Cello Sonata in C, Op. 102 No. 1, Casals-Serkin (1953) & Cello sonata in D Major, Op. 102 No. 2, Casals-Serkin (1954). CD# 11: **BEETHOVEN**: Seven Variations on the duet "Bei Männern, welche Liebe..." from *Die Zauberflöte* by Mozart, for cello and piano: Casals-Cortot (1958); **BEETHOVEN**-Sonata for pianoforte and violin No. 6 in A, Op 30 No. 1: Horszowski-Goldberg (1954); **MOZART**: Clarinet Quintet in A Major K. 581: Gonzales-Végh (1956). CD# 12: **SCHUBERT**: Quintet in C Major, Op. 163: Krachmalnik-Pernel-Tuttle-Foley-Casals (1953); **MENDELSSOHN**: Piano Trio in D Minor Op. 49: Engel-Végh-Casals (1960). CD# 13: **SCHUMANN**: Adagio and Allegro for piano and horn in A♭ Major, Op. 70: Curzon-Casals (1956) & String Quartet in A Minor, Op. 41 No. 1: Végh Quartet (1956) & Quintet for piano, 2 violins, viola and cello in E♭ Major, Op. 44: R. Serkin; Végh Quartet (1956).
+
+CD-1187 (12 CDs)
+©2006 Music and Arts Programs of America, Inc.
+523 Coventry Rd., Kensington CA 94707 USA
+Telephone: 510-525-4583; Fax: 510-524-2111
+E-mail: info@musicandarts.com
+Website: www.musicandarts.com
+
+Of Related Interest on Music & Arts:
+
+*(List of other releases omitted - see inner page)*

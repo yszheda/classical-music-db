@@ -1,0 +1,192 @@
+# Booklet完整原文
+
+## Front Cover
+
+```
+QUINTANA
+BARTÓK
+Le Mandarin merveilleux
+Schoenberg · Kammersymphonie op. 9
+ZOLTÁN KOCSIS · ADRIENNE HAUSER
+piano
+harmonia mundi
+france
+1903021
+musique d'abord
+```
+
+## Back Cover
+
+```
+HMA
+1903021
+HM 57
+50'15
+BÉLA BARTÓK
+(1881-1945)
+1  Le Mandarin merveilleux op.19 Sz.73
+A csodálatos mandarin
+The Miraculous Mandarin
+Pantomime en un acte (1918-1919)  29'58
+
+ARNOLD SCHOENBERG
+(1874-1951)
+2  Erste Kammersymphonie op.9 (1906)
+Première Symphonie de chambre
+Chamber Symphony No.1  20'07
+
+Transcriptions
+pour piano à quatre mains par les compositeurs
+for piano duet by the composers
+
+Premier enregistrement mondial / World première Recording
+
+ZOLTÁN KOCSIS
+ADRIENNE HAUSER
+piano
+
+harmonia mundi s.a., Mas de Vert, 13200 Arles © 1991, 1995
+Made in Germany
+
+compact digital audio
+barcode 2 94881 313020
+```
+
+## Inner Booklet Text
+
+### Frontispiece (inside front cover)
+
+harmonia mundi s.a., Mas de Vert, 13200 Arles © 1991, 1995
+Production Quint Records, Budapest
+Enregistrement Hungaroton août 1988 / octobre 1989
+par SONOPHIL, Budapest
+à l'Hôtel de Ville de Budapest
+Prise de son Ferenc Pécsi
+Direction artistique András Wilheim
+Illustration : Alexei von Jawlensky, Portrait de femme (1912)
+Münster, Westfälisches Landesmuseum
+© A.D.A.G.P. 1991, Cliché Giraudon
+Maquette Relations . Imprimé en Allemagne
+
+---
+
+### Page 3 (Français)
+
+# FRANÇAIS
+
+On inventa la transcription et la réduction pour le piano (genres qui se distinguent difficilement l'un de l'autre) pour les exigences de la pratique musicale quotidienne. Elles furent — et sont toujours — d'un grand secours lors de l'étude des opéras, ballets et concertos en ceci que, dans la phase initiale des répétitions, seul suffit un pianiste en lieu et place de l'orchestre dans son ensemble. Jusqu'à l'apparition de la reproduction mécanique de la musique au début du siècle, on vit fleurir toute une industrie de la transcription pour piano à quatre mains à usage domestique d'opéras célèbres et d'æuvres pour orchestre. Dans ce cas, la transcription cherche à "coller" à l'original de la même manière que l'exécution de l'interprète cherche à "coller" à l'œuvre. Les genres de la transcription et de la réduction pour piano se sont émancipés, et dans certains cas exceptionnels ont donné naissance à des œuvres qui sont d'un intérêt comparable à celui qu'offre l'original. La réduction en transcription pour piano faite par le compositeur — même dans un but pratique — sont une virtualité différente de l'œuvre en même temps qu'un défi : il s'agit de recomposer pour l'instrumentation la plus neutre qui soit une substance musicale déjà fixée. Car la transcription de l'auteur n'est jamais un travail purement mécanique, pas plus qu'une imitation de l'œuvre existante, mais une réélaboration de la substance musicale abstraite afin qu'elle s'adapte mieux aux possibilités du piano.
+
+Dans les premières décennies du vingtième siècle, il était tout à fait naturel de réduire pour le piano les œuvres vocales et théâtrales et les morceaux d'orchestre. La plupart du temps, d'ailleurs, les éditeurs encourageaient cette pratique. Lorsque les transcriptions ne furent plus adaptées à la satisfaction de la pratique musicale domestique, les dissemblances qu'elles présentaient avec l'œuvre originale apparurent évidentes, et il n'est guère étonnant dans ce cas que se posât alors la question de sa légitimité. Dans une série d'articles parus
+
+---
+
+### Page 4-5 (Français continued)
+
+en 1923 sous la direction de Max Brocsike-Schoen dans la revue *Die Musik*, un nombre non négligeable de musiciens en vue répondit à une enquête à propos de la validité de la réduction pour piano. Bien sûr, les avis allaient de la négation pure et simple à son approbation dans un but pédagogique. La réponse que fit Arnold Schönberg est une appréciation parfaite de la situation : selon lui, "la réduction pour le piano n'est pas à envisager comme une création artistique en soi : elle ne procède pas d'impondérables mais, comme tout objet usuel, elle se base sur des principes parfaitement reconnus, dans un but déterminé." Ces buts peuvent naturellement être multiples, le résultat sera lui aussi multiforme. Il est toutefois certain qu'il ne traduira toujours que partiellement l'original, un peu comme lorsque nous envisageons sous un seul angle une création plastique dont toutes les faces sont travaillées. Le principal défaut de la plupart des réductions pour le piano se bornent à transposer au clavier toutes les parties en les juxtaposant les unes aux autres : "De telles pratiques peuvent être comparées à celles d'un cuisinier qui, au lieu de servir les mets, offrirait séparément les ingrédients entres dans la composition de ceux-ci". Cependant le plus important reste de préserver le caractère propre du piano, sa clarté — ceci passe nécessairement par la plus rigoureuse économie de moyens.
+
+Il est intéressant de voir comment ces principes s'appliquent à la transcription pour piano à quatre mains de la *Kammersymphonie* n° 1 op. 9 de 1906 Schönberg lui-même. C'est à propos de cette œuvre que le compositeur, après l'avoir terminée, déclara à ses amis : "J'ai maintenant établi les fondements de mon style. Je sais maintenant de quelle manière je dois composer." A l'intérieur d'une structure en un mouvement, on retrouve une forme condensant un cycle de quatre mouvements. Les nombreuses ramifications internes des thèmes (ce que Schönberg lui-même mettra en évidence quelques années plus tard lors d'une analyse de l'œuvre, la nouveauté de l'harmonie vont de quatre mouvements. Les nombreuses ramifications internes des thèmes (que Schönberg lui-même mettra en évidence quelques années plus tard lors d'une analyse de Op. 9) et les innovations harmoniques vont de pair avec une grande instrumentale virtuosité. Each of the fifteen instruments plays a different part from the others while contributing to the contrapuntal elaboration.
+
+It is precisely this polyphony of fifteen instrumental voices that constitutes the power of the work. One may, therefore, very well ask oneself why Schoenberg went to the trouble of making a transcription for piano duet which could not in
+
+partie indépendante. La conquête la plus significative de l'œuvre est justement cette technique d'instrumentation ; il est évident que la transcription pour piano ne peut rivaliser en richesse sonore avec l'orchestration. Reste à savoir pourquoi Schönberg a transcrit cette pièce : nous ne savons pas si c'est dans un but directement pratique car il ne pouvait guère espérer que la version pour piano — à la limite de ce qui est techniquement jouable — soit un atout en ce qui concerne sa diffusion. Qu'elle soit une œuvre de concert à part entière destinée à la scène paraît peu plausible, le piano à quatre mains n'était guère populaire au concert. Le plus vraisemblable semble qu'il l'ait réalisée pour son propre usage, intéressé par ce qu'il était possible de faire de toute cette matière musicale ; puis, se rendant compte que le principe de la version à deux mains s'avérait impossible, il opta pour la réalisation d'une œuvre à quatre mains. La transcription, particulièrement réussie, a su préserver tout ce qui fait l'intérêt de la version pour orchestre de chambre ; même la polyphonie reste claire, malgré la densité de l'écriture pour piano. Cette réélaboration est plus simple que l'originale, principalement parce que la sonorité du piano est homogène et met ainsi en valeur la cohésion formelle.
+
+On a pu croire que la version pour piano à quatre mains de la pantomime *Le Mandarin Merveilleux* op. 19 de Bartók était, comparée à la version orchestrale, une œuvre de second ordre. Il ne fait aucun doute que Bartók ne la destina pas au concert, pas plus d'ailleurs que les versions pour piano de ses œuvres pour orchestre, de ses concertos, à l'exception de la version pour deux pianos de la *Deuxième Suite* qui est une pièce de concert à part entière, bien que des transcriptions ou réductions pour piano de Bartók s'écartent très peu des originaux (voir par exemple la transcription de la *Suite de Danses*).
+
+---
+
+### Page 6-7 (Français continued)
+
+Néanmoins, la version pour piano à quatre mains du *Mandarin Merveilleux* occupe une place à part dans le processus créatif de Bartók : d'une part, parce que les circonstances de sa naissance nous sont connues d'après les esquisses ébauchées quelques années plus tôt, en 1918-1919 : il rédigea parallèlement les versions pour orchestre et pour piano à quatre mains (il ne s'agit donc pas d'une réduction d'une partition déjà existante). Dans une de ses lettres à son éditeur (Universal Edition, le 29 juillet 1924), il écrit qu'il est "impossible de réaliser une réduction pour piano à deux mains de cette œuvre qui soit en même temps fidèle et jouable". Concurremment à la rédaction de la version à quatre mains, il entreprit pourtant, pour les besoins des répétitions, une version à deux mains. A quoi donc pouvait servir la réalisation pour quatre mains qui, selon ce qu'il déclarait lui-même, serait seule fidèle à ses intentions initiales ? Il est vraisemblable qu'il la destinait au travail de répétition, mais qu'ayant entrepris son travail, il s'aperçut qu'il serait impossible de disposer de deux pianistes. Ainsi, du point de vue de l'utilité pratique, cette version est superflue — il ne fait pourtant aucun doute qu'il a été intéressant de rédiger de deux manières différentes la même substance musicale. Il s'agit là d'une version tout à fait appropriée aux exigences du concert qui, dans un genre propre, se distingue tout à fait de la version pour orchestre.
+
+**ANDRÁS WILHEIM**
+Traduction Pascal Duc
+
+Voici comment Bartók résuma en 1919 le déroulement de l'histoire du *Mandarin merveilleux* :
+
+"Dans un bouge, trois Apaches forcent une belle fille à racoler des hommes afin de les détrousser. La première victime est un vieux beau, la seconde (un timide jeune homme) ne vaut guère mieux, mais la troisième est un riche Chinois. C'est une bonne affaire. La fille se danse en dansant et éveille un désir qui se
+
+transforme en passion. Mais elle le trouve repoussant. Les Apaches l'attaquent, le détroussent, et tente de l'étouffer sous une couverture, lui passent une épée au travers du corps et le pendent. Mais en vain. Ils ne peuvent le vaincre et le Mandarin continue de fixer la fille avec envie. Finalement, l'instinct féminin prend le dessus, et la fille satisfait au désir du Chinois ; alors, seulement, il tombe à terre et meurt."
+
+---
+
+### Page 8-9 (English)
+
+# ENGLISH
+
+Although it is difficult to distinguish one from the other, the reduction and the transcription for piano were both born out of the requirements of daily musical practice. The first of them was always extremely useful in the study of operas, ballets and concertos, even if only in the initial stages when the pianist on his own could imitate the whole orchestra. As for the second, it was intended mainly for domestic use. Until the appearance of the mechanical reproduction of a musical work at the beginning of the century, the transcription for piano duet of famous operas and orchestral works even became a flourishing industry. At first the aim was to stick closely to the original, just as the pianist tried to remain as faithful as possible to the work in his execution of the transcription. But it was not long before the two genres emancipated themselves from one another, giving rise, in certain cases, to works of an interest equal to that presented by the original. When the "piano score" or the transcription was made by the composer himself, even for purely practical purposes, it acquired a different potential and sometimes presented a challenge : it was a matter of recomposing an already perfectly fixed musical content for the most neutral medium there was. A transcription by the composer is never a purely mechanical piece of work, no more than it is an imitation of the existing composition, but a veritable re-working of the abstract musical substance endeavouring to adapt it as closely as possible to the demands of the piano.
+
+With the encouragement of music publishers, the practice of the transcription endured into the first decades of the twentieth century, for as long as it remained consistent with domestic musical practice. But its deviations from the original became so conspicuous that the question as to its legitimacy arose. In a series of articles that appeared in 1923 in the periodical *Die Musik* a number of leading musicians replied to an enquiry into the question. Needless to say, opinions were divided, ranging from the repudiation of the usefulness of the
+
+practice to its approval as a pedagogical tool. Arnold Schoenberg's response to the question is a pertinent evaluation of the situation : according to him "the piano reduction is not to be regarded as an artistic creation in itself ; it does not emerge from the imponderable, but, like every common object, it is based on perfectly recognized principles, with a determined goal." As there could be a multitude of goals, the results, too, could be multiform. In any case, there can be no doubt that it will always be only a partial rendering of the original, as if one were to look at only one side of a work of sculpture which is carved on all sides. The main defect of most piano reductions is that they limit themselves to transposing all the parts on to the keyboard by juxtaposing them one upon the other, a procedure that may be compared to a cook who, instead of serving a dish, were to serve its ingredients separately. Schoenberg concludes by insisting on the characteristic nature of the piano which must not be ignored if the clarity of the musical discourse is to be preserved. This implies the strictest economy of means.
+
+It is interesting to see to what extent the principles propounded by Schoenberg apply to his transcription for piano duet of his *Kammersymphonie* No. 1, *Op. 9* of 1906. It was à propos of this complex work that the composer declared to his friends, after having completed it, "I have now established the foundations of my style. From now on I know the manner in which I must compose." This work in one movement is, in fact, built on a structure in which a series of four movements are condensed. The innumerable internal ramifications of the themes (which Schoenberg emphasized himself a few years later in an analysis of *Op. 9*) and the harmonic innovations go hand in hand with great instrumental virtuosity. Each of the fifteen instruments plays a different part from the others while contributing to the contrapuntal elaboration.
+
+It is precisely this polyphony of fifteen instrumental voices that constitutes the power of the work. One may, therefore, very well ask oneself why Schoenberg went to the trouble of making a transcription for piano duet which could not in
+
+---
+
+### Page 10-11 (English continued)
+
+any case, vie with the richness of the orchestral sonorities. He never gave an explanation of the reasons himself. The theory that the piano version might serve in making the work better known can hardly be defended because of the almost insurmountable difficulties of the score, like that of the original concert work, in so far as the piano duet was not very popular among concert-goers. The most likely explanation is that he made it for his own use, interested in what could be made out of all this musical material. Whatever the case may be, and contrary to all expectation, this transcription turned out to be particularly successful in the sense that Schoenberg managed to preserve all the essential qualities of the *Kammersymphonie*, in particular the polyphonic clarity, in spite of the density of the piano writing. What is more, this re-working has one real advantage over the original version, as the homogeneity of the piano's sonorities bring out its formal cohesiveness with greater clarity.
+
+***
+
+The same reasons may be presumed to have applied to the transcription for piano duet of Bartók's *Miraculous Mandarin*, *Op. 19*. The Hungarian composer certainly did not intend it for concert performance, no less than the piano versions of any of his other orchestral works. With the exception of the two piano transcription of the *Second Suite*, which is a genuine concert piece, the other piano scores were made for purely personal reasons and differ very little from the orchestral originals (as we may see, for instance, in that of the *Dance Suite*).
+
+Nevertheless, the piano version of the *Miraculous Mandarin* occupies a place of its own in Bartók's creative practice, on the one hand because, if we examine the early sketches of the pantomime (1918-1919), we discover that he composed the versions for orchestra and for piano duet at the same time — the latter is, therefore, not a transcription of an already extant score — and, on the other hand, if we are to believe what he wrote to his publisher (Universal Edition) on
+
+29 July 1924, it was "impossible to make a reduction of this work for two hands which would be both faithful and playable". The version for two hands (made to be used at rehearsals) and the more faithful one for four hands were thus made concurrently — although he knew very well that for all practical purposes the piano duet version was not likely to meet with much recognition. But it is probable that reducing the same musical material in two different ways was of great interest to him. And yet the two hand version was quite appropriate to the demands of concert performance, because it stood apart from the orchestral version of the *Miraculous Mandarin* as an entirely separate genre. As for the piano duet version, it constitutes a veritable alter ego of one of Bartók's greatest works. What it loses in visual stage action it gains in dramatic effect — like a kind of symphonic poem of melodramatic dimensions.
+
+**ANDRÁS WILHEIM**
+Translation James O. Wootton
+
+In 1919 Bartók summarized the plot of *The Miraculous Mandarin* as follows :
+
+"In a sordid den three ruffians compel a pretty girl to lure men into her shabby room where they can be robbed. The first victim is a down-at-heels gentleman, the second, a shy boy, is not worth much more. But the third is a rich Mandarin. A good catch. The girl entertains him with her dancing and arouses his desire which changes into a passion for her. But she finds him repulsive. The ruffians attack him, rob him and then try to smother him under a blanket, thrust a sword through his body and hang him. But in vain ; they cannot vanquish him and the Mandarin continues to stare at the girl with desire. Finally the female instinct overcomes her and the girl gives in to the Mandarin's desire. Only then does he collapse on the ground and die."
+
+---
+
+### Page 12-13 (Deutsch)
+
+# DEUTSCH
+
+Die Grenze zwischen Klavierauszug und Klavierbearbeitung ist oft verschwommen, sind sie doch beide aus den Anforderungen der täglichen Musikpraxis entstanden. Der Klavierauszug war immer ein unentbehrliches Hilfsmittel beim Einstudieren von Opern, Balletten und Konzerten, sei dieses auch nur auf die Anfangsphase der Proben beschränkt, in der allein durch den Pianisten das ganze Orchester nachgeahmt werden kann. Von der Klavierbearbeitung kann man sagen, daß sie eher für den Hausgebrauch bestimmt war. Bis zur Erfindung der mechanischen Reproduktion von Musik am Anfang unseres Jahrhunderts fanden Bearbeitungen zu vier Händen große Verbreitung, denn durch sie konnten die bekanntesten Opern- und Orchesterwerke für die Hausmusik adaptiert werden. Grundsätzlich galt es, dem Original in demselben Sinn treu zu sein wie ein Interpret sich um die exakte Wiedergabe eines Werkes bemüht. Doch mit der Zeit entwickelten sich von gleichwertiger Bedeutung wie das Original. Und wenn die Bearbeitungen gar selbst vom Komponisten vorgenommen wurde — manchmal nur aus rein praktischen Gründen — erlangte sie eine neue, völlig festgelegten musikalischen Gehalt zu neuem Medium, einen bereits völlig festgelegten musikalischen Gehalt zu bearbeiten, möglichst genau den Gegebenheiten des Klaviers angepaßt werden mußte.
+
+Von den Musikverlegern anspornt, dauerte die Praxis der Klavierbearbeitung während der ersten Jahrzehnte unseres Jahrhunderts an, solange sie auf den musikalischen Hausgebrauch ausgerichtet war. Jedoch wurden die mangelnden Übereinstimmungen mit dem Original wurden immer deutlicher, so daß sich die Frage nach ihrer Berechtigung stellte. 1923 ließ die Musikzeitschrift *Die Musik* in einer Artikelserie viele Musiker von Rang und Namen diesbezüglich zu Wort kommen. Die Meinungen waren sehr geteilt. Arnold Schönbergs Antwort stellt eine treffende Einschätzung der Situation dar: "Ein Klavierauszug entsteht nicht wie ein Kunstwerk : aus unbekannten Ursachen, sondern wie ein Gebrauchsgegenstand : aus bekannten Gründen ; zu einem bestimmten Zweck." Die Zwecke konnten vielfältig sein, wie auch das Resultat vielgestaltig. Sicher ist, daß das Original jeweils nur teilweise wiedergegeben ist, als wenn man eine Plastik nur aus einem Blickwinkel betrachten würde. Der Hauptfehler der meisten Klavierauszüge und -bearbeitungen liegt darin, daß sie sich damit begnügen, alle Stimmen einfach übereinander-geschichtet werden, was Schönberg mit einem Koch vergleicht, "der statt der Speisen die Bestandteile servieren läßt, aus denen die Speise besteht. So verlangt er schon die größte Ökonomie der Mittel.
+
+Nun ist es interessant zu verfolgen, wie Schönberg diese Prinzipien bei der Bearbeitung für Klavier zu vier Händen seiner 1. *Kammersymphonie* *Op. 9* von 1906 anwendet. Nach der Vollendung dieses komplexen Werkes für 15 Soloinstrumente hatte Schönberg seinem Freundeskreis die (nachträglich etwas voreilig erscheinende) Erklärung gemacht, daß darin die Grundlagen seines Stils festgelegt seien. Dieses einsätzige Werk stellt eigentlich eine zusammengedrängte Folge von vier Sätzen dar. Die vielen thematischen Verknüpfungen (die Schönberg selbst in einer Analyse des Opus 9 erklärt hat) und die harmonischen Neuerungen paaren sich mit großer instrumentalen Virtuosität. Jedes Instrument spielt eine eigene ganz unterschiedliche Stimme und trägt bei zur kontrapunktischen Durcharbeitung bei. Und genau diese Polyphonie ist es, die die einzigartige Kraft dieses Werkes ausmacht. Nun kann man sich zu Recht fragen, warum Schönberg sich zu einer Bearbeitung für Händen entschloßen hat, die außer Stande ist, mit dem
+
+---
+
+### Page 14-15 (Deutsch continued)
+
+klanglichen Reichtum der Instrumentalversion zu rivalisieren. Er selbst hat sich niemals hierzu erklärt. Die These, daß die Klavierversion vielleicht dienen kann, das Werk bekannter zu machen, kann kaum verteidigt werden wegen der fast unüberwindlichen Schwierigkeiten der Partitur, wie that des Originals Konzert, in so far das vierhändige Klavierspiel im Konzertrahmen nicht sehr populär war und überdies diese Bearbeitung trotz alles Originals, daß die polyphonische Durchsichtigkeit und das trotz der Dichte der Klavierpartitur. Diese Neuausarbeitung des musikalischen Stoffes besitzt obendrein einen wirklichen Vorteil gegenüber dem Original ; die klangliche Homogenität des Klaviers bringt mehr den formalen Zusammenhang des Werkes zur Geltung.
+
+***
+
+Ähnliche Mutmaßungen sind bei der Klavierbearbeitung zu vier Händen von Béla Bartóks *Op. 19 Der wunderbare Mandarin* anzustellen. Sicher hat der ungarische Komponist sie nicht für die Konzertöffentlichkeit bestimmt, nicht mehr als andere Klavierbearbeitungen seiner Orchesterwerke. Mit Ausnahme der Bearbeitung für zwei Klaviere seiner *Suite Nr. 2*, die ein wirkliches Konzertstück ist, waren die anderen Bearbeitungen für Klavier persönlichen Zweck ausgerichtet und weichten kaum vom Orchesteroriginal ab. Dieses ist beispielsweise an der *Tanz-Suite* zu beobachten. Nichtsdestoweniger behauptet einen ganz besonderen Platz in Bartóks Schaffensprozeß. Erstens fällt beim Betrachten der ersten Entwürfe für die Ballettpantomime auf, daß Bartók gleichzeitig die Orchester- und die Klavierversion niederschrieb — es handelt sich hier also nicht um eine Orchesterpartitur- und zweitens war es nicht einen Klavierauszug bedeutet können war es nicht um einen Klavierauszug durch den Komponisten, sondern zweitens war es
+
+nicht um einen Klavierauszug bedeutet können war es nicht einen Klavierauszug durch den Komponisten, sondern zweitens war es nicht um einen Orchesterpartitur- und zweitens war es
+
+ihm bei diesem Werk nicht möglich, "einen spielbaren und inhaltlich dennoch treuen 2-händigen Klavierauszug herzustellen", wie er sich in einem Brief vom 20. Juli 1924 an seinen Verleger Universal-Edition äußert. Gleichzeitig mit der Bearbeitung zu zwei Händen, die für Korrepetitionszwecke gebraucht wurde, verfaßte er also diese vorliegende zu vier Händen, wenn er auch genau wußte, daß diese hinsichtlich ihres Gebrauchszwecks kaum ein Echo finden würde. Man kann auch davon ausgehen, daß es Bartók sehr interessierte, den musikalischen Stoff auf zwei verschiedene Arten zu verarbeiten. So war die zweihändige Version durchaus den Konzertanforderungen angemessen, da sie sich vom Orchesterwerk wie ein eigenständiges Genre abhob. Die vierhändige Version stellt ihrerseits wirklich ein Alter ego eines der größten Werke Béla Bartóks dar. Das was ihr an szenischer Aktion verloren geht, gewinnt sie an dramatischer Wirkung dieses wird sie dramatischer Wirkung. Dieses wird sie dramatischer Dimensionen aufweist.
+
+**ANDRÁS WILHEIM**
+Übersetzung Ebba Schirmacher
+
+Inhalt der Pantomime : in einem ärmlichen Vorstadtzimmer zwingen drei Strolche ein Mädchen, die ausgeraubt werden sollen, von der Straße heraufzulocken. Ein schäbiger Kavalier und ein schüchterner Jüngling, die der Lockung Folge leisten, werden hinausgeworfen. Der dritte Gast ist der unheimliche Mandarin. Das Mädchen suchte seine angsterregende Starrheit durch einen Tanz zu lösen, aber da er sie ängstlich umfängt, flieht sie schaudernd vor ihm. Nach wilder Jagd holt er sie ein, da stürzen die Strolche aus ihrem Versteck, plündern ihn und versuchen ihn unter Kissen zu ersticken. Aber er erhebt sich und blickt sehnsüchtig nach dem Mädchen. Da durchboren sie ihn mit dem Schwerwert : er wankt, das Mädchen sucht ihn in die Arme genommen hat, fangen seine Wunden an zu bluten und er stirbt.
+
+---
+
+## Credits (back inside)
+
+harmonia mundi s.a., Mas de Vert, 13200 Arles © 1991, 1995
+Production Quint Records, Budapest
+Enregistrement Hungaroton août 1988 / octobre 1989
+par SONOPHIL, Budapest
+à l'Hôtel de Ville de Budapest
+Prise de son Ferenc Pécsi
+Direction artistique András Wilheim
+Illustration : Alexei von Jawlensky, Portrait de femme (1912)
+Münster, Westfälisches Landesmuseum
+© A.D.A.G.P. 1991, Cliché Giraudon
+Maquette Relations . Imprimé en Allemagne

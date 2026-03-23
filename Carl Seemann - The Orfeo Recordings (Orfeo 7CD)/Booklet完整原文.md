@@ -1,0 +1,169 @@
+# Carl Seemann
+## The ORFEO Recordings
+Recordings 1952-1979
+
+ORFEO D'OR
+C260007 | 7 CDs
+
+---
+
+### CD 1 & 2 • C014002
+**Johann Sebastian Bach (1685-1750)**
+Partita Nr. 1-6, BWV 825-830 / Partitas Nos. 1-6, BWV 825-830
+
+Aufnahme / Recording: 5./6. Juni 1965, Sendesaal Radio Bremen
+
+---
+
+### CD 3 • C473971
+**Johann Sebastian Bach (1685-1750)**
+Sonate E-Dur BWV 1016 / Sonata No. 3 for Violin and Keyboard in E Major, BWV 1016
+
+**Ludwig van Beethoven (1770-1827)**
+Sonate Es-Dur op. 12.3 / Violin Sonata No. 3 in E-flat Major, Op. 12, No. 3
+
+**Franz Schubert (1797-1828)**
+Duo A-Dur op. posth. 162 D 574 / Duo Sonata in A Major, Op. 162, D. 574
+
+**Wolfgang Amadeus Mozart (1756-1791)**
+Sonate B-Dur KV 454 / Violin Sonata No. 32 in B-Flat Major, K. 454
+
+Wolfgang Schneiderhan, Violine / violin
+
+Aufnahme / Recording: 15. Juni 1964, Schloß Schwetzingen
+
+---
+
+### CD 4 • C447961
+**Wolfgang Amadeus Mozart (1756-1791)**
+Konzert für Klavier und Orchester in C-Dur KV 503 / Piano Concerto No. 25 in C Major, K. 503
+Konzert für Klavier und Orchester in Es-Dur KV 449 / Piano Concerto No. 14 in E-flat Major, K. 449
+
+NDR Symphony Orchestra
+Wilfried Boettcher, Dirigent / conductor (KV 503)
+Leopold Hager, Dirigent / conductor (KV 449)
+
+Aufnahme / Recording: 25. Februar 1972 in Kiel (KV 449), 6. Dezember 1979 in Hamburg (KV 503)
+
+---
+
+### CD 5 • C474971
+**Ludwig van Beethoven (1770-1827)**
+Konzert für Klavier und Orchester Nr. 2 B-Dur op. 19 / Piano Concerto No. 2 in B-flat Major, Op. 19
+Sonate für Klavier E-Dur op. 14, 1 / Piano Sonata No. 9 in E Major, Op. 14, No. 1
+Sechs Bagatellen op. 126 / 6 Bagatelles, Op. 126
+
+Sinfonieorchester des Norddeutschen Rundfunks
+István Kertész, Dirigent / conductor
+
+Aufnahme / Recording: 10./11. März 1963, Musikhalle Hamburg (op. 19), 9. Mai 1962, NDR Studio Hamburg (op. 14,1), 23. Mai 1952, SDR Studio VI (op. 126)
+
+---
+
+### CD 6 • C418971
+**Johann Sebastian Bach (1685-1750)**
+Sonate für Violoncello und Klavier D-Dur BWV 1028 / Viola da Gamba Sonata in D Major, BWV 1028
+
+Carlo Zecchi, Klavier / piano
+
+**Max Reger (1873-1916)**
+Sonate für Violoncello und Klavier a-Moll op. 116 / Cello Sonata No. 4 in A Minor, Op. 116
+
+**E. Mainardi – Meine Erinnerungen an die Begegnung mit Max Reger in Heidelberg 1913**
+Enrico Mainardi, Violoncello / cello
+
+Aufnahmen / Recordings: Bayerischen Rundfunks, 21. März 1956 (Bach)
+Österreichischen Rundfunks, Landesstudio Salzburg, 2. März 1973 (Reger)
+
+---
+
+### CD 7 • C197891
+**Paul Hindemith (1895-1963)**
+Symphonie in B für Concert-Band / Symphony in B-Flat Major
+Theme and Variationen, "The 4 Temperaments" / Theme and Variations, "The 4 Temperaments"
+
+Clara Haskil, Klavier / piano
+
+**Alban Berg (1885-1935)**
+Kammerkonzert für Violine, Klavier und 13 Bläser / Chamber Concerto for violin, piano and 13 winds
+
+Wolfgang Marschner, Violine / violin
+
+Bavarian Radio Symphony Orchestra
+Paul Hindemith, Dirigent / conductor
+
+Aufnahme / Recording: Live Recording: Herkulessaal der Münchner Residenz, 8. Oktober 1959
+1. Juli 1955 (Hindemith, Die vier Temperamente)
+
+---
+
+## Carl Seemann: The ORFEO Recordings
+(Original text by Christoph Schlüren, translated by Jens F. Laurson)
+
+### Klassiker und Romantiker in gereinigter, neuer Auffassung
+
+Bruno Walter, one of the twentieth century's great conductors... *(Note: This introduction continues from the German section, translated below)*
+
+---
+
+### Das pianistische Umfeld (The Pianistic Environment)
+
+Carl Seemann gehörte zu jenen Pianisten, die nicht versuchten, die Zuhörer mit ihrer Tastenakrobatik in Bann zu ziehen, sondern primär das Klavier als ideales Medium verstanden, ein vielstimmiges Geschehen auf einem einzigen Instrument zu entfalten. Nicht der Komponist und seine Musik sollten dem Interpreten zu Diensten sein – wie dies in der kommerziellen Welt der internationalen Starkults mit ihren genial Interpreten' der Fall ist, sondern: der Pianist ist zuerst und zuletzt ein Musiker und nur nebenbei auch ein Virtuose, und sein Können stellt er in den Dienst des Komponisten und der Musik.
+
+Als der deutsche ,Klaviermusik-Papst' Joachim Kaiser anlässlich einer postumen CD-Veröffentlichung Carl Seemanns zu einer Begründung ausholte, worum sich ihm über Jahrzehnte die wahre Bedeutung die Namen nicht erschlossen habe, nannte er die Namen Rubinstein, Horowitz, Emil Gilels und Svjatoslav Richter, deren Ruhm den seinen nach dem II. Weltkrieg überstrahlt habe. Da wären natürlich noch viele weitere zu nennen; Robert Casadesus, Claudio Arrau, Solomon, Clifford Curzon, Dinu Lipatti, Arturo Benedetti Michelangeli, Géza Anda, Alicia de Larrocha, Alexis Weissenberg, Friedrich Gulda, Glenn Gould seien nur als die Aufsehenerregendsten unter den Jüngeren genannt. Und nach wie vor waren so bedeutende Erscheinungen wie Alfred Cortot, Josef Hofmann, Artur Schnabel, Wilhelm Backhaus, Edwin Fischer, Myra Hess, Mieczysław Horszowski, Clara Haskil, Walter Gieseking, Wilhelm Kempff, oder Eduard Erdmann auf den Podien präsent. Es herrschte also zu jener Zeit eine höchst reichhaltige Auswahl herausragender Pianisten, unter ihnen sowohl Exzentriker als auch selbstlose Werkdiener, sowohl Romantiker als auch Sachwalter der Moderne. Allerdings gab es noch fast gar kein Spezialistentum im heutigen Sinne, wo sich die Szene aufsplittert in die ,historische Aufführungspraxis', die durchschnittsenventierte ,Avantgarde' und den allgemeinen Konzertbetrieb, der das Übrige umfasst.
+
+Selbst wenn wir nur Einblick nehmen in die Generation deutscher Pianisten rund um Seemann, ist das Spektrum überraschend groß: Rudolf Serkin (geb. 1903), Conrad Hansen (geb. 1906), Carl Seemann (geb. 1910), Helmut Roloff und Hans Richter-Haaser (geb. 1912), Edith Picht-Axenfeld (geb. 1914), Erik Then-Bergh (geb. 1916), Maria Bergmann (geb. 1918), Detlef Kraus (geb. 1919) und Kurt Leimer (geb. 1920) sind nur die bekanntesten Namen. Sie alle eint, dass Mitte des 20. Jahrhunderts alle Kenner mit ihrem Spiel vertraut waren, und dass sie heute ebenso weitgehend unbekannt sind wie leider auch Eduard Erdmann (1896-1958), der als großes ethisches Vorbild dieser Generation gelten kann, die durch den II. Weltkrieg so einschneidende Zäsur ihres Wirkens erfuhr.
+
+### Bach the Reference, Mozart the Ideal: A Trajectory from the Organ to the Piano
+
+Born in the Hanseatic town of Bremen on May 8th, 1910, Carl Seemann graduated from grammar school uncertain whether to study theology or music. Attending the Institute of Church Music in Leipzig - where he studied organ with Karl Straube and Günter Ramin, choral conducting with Kurt Thomas, composition with Günter Raphæl, and piano with the legendary Liszt-lineage-student Carl Adolf Martienssen - Seems like a truly Solomonic solution. In Leipzig, as a pianist, he didn't just receive vital impulses as a pianist, he was also introduced - via Mendelssohn's Bach revivalist movement - to the music of the most famous Thomaskantor as well as that of his predecessors and successors. The 'objective position' this school took to polyphonic music as such was nothing new amid the circles of church musicians. Nor did it necessarily mean a rejection or exclusion of romantic expressiveness. It merely suggested a certain amount of deliberation, moderation, lyrical part writing, rhythmical clarity, and structural balance in all their music-making.
+
+On graduating, Seemann worked as an organist in Flensburg, in the very north of Germany, where he conducted the local choir in such local firsts as Heinrich Schütz' St John Passion and Mozart's Coronation Mass. The working conditions were brutal (97 Reichmarks, about $30, per month, while being employed on a week-to-week basis), and Seemann never felt particularly nostalgic about that period, looking back. Eventually, his former teacher Karl Straube got him out of the boonies and set him on the path to becoming a concert pianist. Seemann got a few first radio engagements and in 1935 became a piano teacher at the "Nordmark" Music School in Kiel, 50 miles to the south. There, Seemann started to devote himself more to chamber music and he gave his concert debut in Mozart's Coronation Concerto K.537. Later Seemann would sum up his particular approach to the repertoire with characteristic understatement:
+
+> "As I built my repertoire, I figured that, given how was a relative latecomer, I would never be able to perform a Tchaikovsky piano concerto with anything like the technical assurance of a Vladimir Horowitz. I have always loved Mozart and love him still more today than I did back then. Most of the Mozart-concertos weren't played by anyone, back then. But for me, every one of his concertos is like a miracle – and any cellist would give a right leg (if, obviously, not an arm) for there to be a cello concerto among them.
+
+> It was never a sacrilege for me to play Bach's music on the modern piano. The Well-Tempered Clavier had already been performed by several others, so I focused more on the Suites and Partitas. It was a duty for me, to document that our modern instruments were not only suitable for such keyboard music but that one could interpret it even more handsomely. Purists can't be helped in that matter. But this does presume a thorough familiarity with Bach's music. Proximity to Bach wasn't a problem for me, as opposed to other 'normal' pianists, who would have been studying Chopin and the other romantics from the age of eleven.
+
+> Through the years, I had been able to hear Schumann's great solo piano compositions in very good to downright ideal interpretations, thanks to the likes of Gieseking, Kempf, and Rubinstein. Myself, I often feel a greater affinity to the music of my fellow northern German Brahms than that of Schumann. Whether there are any geographical reasons for this, I don't know. I simply find that there isn't a single bar of unnecessary Brahms' music: that it doesn't contain a phrase that isn't inherently necessary.
+
+> For me, Bach, Mozart, and Brahms form a triumvirate. I would never, of course, suggest that anything about the reputation Beethoven enjoys is unwarranted, only because I love Mozart quite as much. And it is only natural that Beethoven should be so absolutely captivating. But I had never seen it as my job to perform all of Beethoven's piano sonatas in six or seven consecutive evenings. Mozart, meanwhile, is the epitome of a miracle, for me. I don't feel the same way about any music, except perhaps some Schubert."
+
+Among the great composers of our century, I count composers like Bartók, Stravinsky, and Hindemith. I have a certain predilection for these three, even as they are quite dissimilar. But they distinguish themselves from the representatives of the Second Viennese School, which is not exactly where my affinities lie!
+
+### Straßburg Intermezzo and the End of the War
+
+In 1939, shortly before the war broke out, Seemann was called up for military duty and had to partake in the invasion of Poland before being discharged in the spring of 1940. In 1942, Hans Rosbaud invited Seemann to lead a series of masterclasses in Strasbourg, a position he held until the declaration of 'total mobilization' in late 1944. Strasbourg was, unusually within the Third Reich, characterized by a liberal and tolerant coexistence of French and German culture. This atmosphere was one that was remembered with great fondness on a personal and professional level by those who had lived through it, it resulted in friendships with Rosbaud, conductors Fritz Münch (brother of Charles Munch, the later music director of the Boston Symphony), and Felix Prohaska, the physicist and philosopher Carl Friedrich von Weizsäcker, and the lawyer and co-founder of the Max-Planck-Institute for Human Development, Hellmut Becker – all of which lasted a lifetime.
+
+Only the friendship with the much-admired Alsatian composer Leo Justus Kauffmann came to a premature end when the latter died (as did Münch's wife), during the bombing of Strasbourg in September 1944. Hellmut Becker summarized the time thus: "In this Strasbourg, between 'Stalingrad' and liberation at the hands of the French, there came about something of a strange affinity among those Germans who rejected National Socialism and Alsations - which has borne lasting relationships. Technically, Carl Seemann was summoned to the Conservatory by the occupying force. But soon after the war, he was already giving very successful concerts in Strasbourg again – as did Rosbaud, because the people knew that he was a musician and political human being to whom the bond between Germans and Frenchmen was a reality and the war a terrible aberration."
+
+The intense musical cross-fertilization between Seemann and Rosbaud led to the former playing an increasing amount of contemporary music. Especially directly after the war, usually on cooperation with Rosbaud, who had taken on the directorship of the Southwest German Radio Symphony Orchestra in Baden-Baden, Seemann regularly premiered and made first recordings of works by composers like Wolfgang Fortner and Giselher Klebe. And as much as he had dedicated himself to the music of Paul Hindemith, he also indicated that he had rather deemed a trailblazer of German expressionism.
+
+It was after the war that the era of the pianist Carl Seemann began in earnest and we are fortunate to have many recordings that document this period of his career. Hellmut Becker again:
+
+> "After his release as a prisoner of war, Carl Seemann showed up at our place on Lake Constance. During his detainment, he had already found a friendly French farmer who would let him practice at his home, wrapped in winter coat, would sit down at the piano to rehearse again and again. Even in great concerts, I have never been as impressed by Carl Seemann's gripping vigor, as I was in those days of frost-impeded new beginnings."
+
+We lived in a village by the name of Kressbronn. Then the flutist Gustav Scheck appeared in the neighboring and soon music was made together and before long the concept of a conservatory in the bombed-out Freiburg began to take shape. As reconstruction got underway, most moved away from Lake Constance; on moved to Freiburg.
+
+### Classics and Romantics Scrubbed and Reimagined
+
+After the War, Hans Rosbaud briefly took on the Munich Philharmonic as the successor to Oswald Kabasta. But soon he became the music director of the "Südwestfunk" in Baden-Baden, and since Freiburg was part of the broadcasting area, Seemann was rekindled. Already on December 5th, 1948, Seemann and Rosbaud gave a first performance of Béla Bartók's Sonata for Two Pianos and Percussion. Nowadays, Rosbaud is usually remembered as a champion of musical modernism but he really was one of the great consummate musicians of the 20th century, and with his duo partner Wolfgang Schneiderhan, with whom he concertized for decades. Together, they were one of the most famous violin-piano duos of their time, appeared regularly at all the big festivals, and made numerous recordings for Deutsche Grammophon, the same label that Seemann also still recorded a lot of solo-repertoire for, especially Bach, Haydn, and Mozart, but also Beethoven, Brahms, Stravinsky, Hindemith, Hartmann, and Fortner.
+
+On the occasion of Seemann's 70th birthday, Schneiderhan wrote the following about their collaborative music-making:
+
+> "What has led us to this partnership, decades ago, was that common approach to the music from different periods and styles, the reassurance of an absolutely unwavering, dependable rhythm, and not the least his integrity, coupled with an absolutely incorruptible conduct and comprehensive erudition."
+
+Seemann is a northerner, I am an Austrian, a southerner, which is not to be seen as a value judgment. Now, I can look back with some amusement at how, in the beginning, we would often have to patch things up for each other. We even parted ways for a few years but ultimately sought and found each other again, accompanied by great joy and warmth. Perhaps getting wiser had a hand in that, literally and metaphorically speaking.
+
+Carl Seemann died on November 26th, 1983, at the age of 83, in Freiburg, which had been his home and base for the entire second chapter of his life. It took some 25 years before the recordings of his studio and concert performances began to be re(dis)covered and today he is once again regarded as one of the leading German pianists of the post-war era.
+
+*Christoph Schlüren*
+*(translation Jens F. Laurson)*
+
+---
+
+Cover photo: © Fayer, Wien
+Booklet photos: © Pritatorarchiv / private archive
+
+©+℗ 2023 ORFEO International Music GmbH, Poing, Germany
+www.orfeomusic.de
+Trademark(s) registered

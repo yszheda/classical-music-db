@@ -1,0 +1,83 @@
+# 基本信息
+
+## 专辑信息
+
+**专辑名:** Ferruccio Busoni: Chaconne, Mephisto Waltz, Fantasia Contrappuntistica
+**中文译名:** 费鲁乔·布索尼：恰空、梅菲斯特圆舞曲、对位幻想曲
+**作曲家:** Ferruccio Busoni (费鲁乔·布索尼，1866-1924)
+**演奏者:** Christopher O'Riley (克里斯托弗·奥赖利) - 钢琴
+**厂牌:** Centaur Records
+**目录编号:** CRC 2036
+**条形码 (Barcode):** 0 44747-2036-2 1
+**发行年份:** 1988
+**录音时间:** 1987年6月
+**录音地点:** 纽约州立大学Purchase分校演奏厅
+**格式:** 1CD
+**总时长:** 58'57"
+**钢琴:** Steinway D
+
+---
+
+## 曲目列表
+
+| 曲号 | 作品 | 乐章/描述 | 时长 |
+|---|---|---|---|
+| 1 | Mephisto Waltz | (arr. of "Episode from Lenau's 'Faust'" by Franz Liszt) | 12'35" |
+| 2 | Chaconne | (after the Partita II in d-minor by J. S. Bach) | 15'01" |
+| 3 | Fantasia Contrappuntistica | | 31'01" |
+| 3.1 | | Preludio corale | 9'46" |
+| 3.2 | | Fuga I | 3'23" |
+| 3.3 | | Fuga II | 2'02" |
+| 3.4 | | Fuga III | 5'23" |
+| 3.5 | | Intermezzo | 1'01" |
+| 3.6 | | Variazione I | 1'14" |
+| 3.7 | | Variazione II | 0'58" |
+| 3.8 | | Variazione III | 0'57" |
+| 3.9 | | Cadenza | 1'30" |
+| 3.10 | | Fuga IV | 1'48" |
+| 3.11 | | Corale | 1'03" |
+| 3.12 | | Stretta | 1'54" |
+
+**Total Time: 58'57"**
+
+---
+
+## 作品简介
+
+### 梅菲斯特圆舞曲 (Mephisto Waltz)
+
+布索尼惊人数量的改编作品可追溯到李斯特，两人都对钢琴音色资源有着敏锐感知。这部1904年改编的《梅菲斯特圆舞曲》副标题为"乡村酒馆之舞"，取自李斯特《浮士德交响曲》第三乐章，标题为"梅菲斯特费勒斯"。和李斯特原作一样，这里神性与魔鬼二元并存。布索尼并未声称改进李斯特改编，但他的版本技术要求超越原作，在戏剧张力、钢琴音色辉煌方面令人印象深刻，值得重视。
+
+### 恰空 (Chaconne)
+
+改编自巴赫无伴奏小提琴帕蒂塔第二号BWV 1004的最后乐章恰空。布索尼版本基本按小节追随原作，只有两处轻微调整以便重新分配双手织体。布索尼并不打算模仿小提琴音色，他的改编更接近管风琴音色效果，就像巴赫本人改编自己小提琴赋格到管风琴一样。
+
+作品结构分为三个部分：开头八小节主题，d小调30变奏，D大调20变奏，最后回到d小调12变奏（最后八小节再现开头主题）。与早期其他改编家不同，布索尼大量对原作进行加工，增加了许多八度和音色处理以及速度提示。
+
+### 对位幻想曲 (Fantasia Contrappuntistica)
+
+这部作品创作于1910年，灵感来自巴赫未完成的最后杰作《赋格的艺术》，布索尼在对位大师米德尔舒尔特指导下深入研究对位技法完成了这部作品，并将其题献给米德尔舒尔特。
+
+作品分为十二个部分，分组为三章，结构对应阿维尼翁教皇宫西门建筑设计：
+- 第一章：三首赋格（赋格I、II、III）
+- 第二章：间奏曲与三组变奏
+- 第三章：华彩、赋格IV、众赞歌、紧接段（四重赋格高潮）
+
+布索尼在这里使用了真实对位答句，尽管带来不协和与调性模糊，却拓展了对位艺术。作品技术要求极高，曾被称为"不可演奏"，但在现代钢琴技巧下已经成为展示钢琴家能力的试金石。布索尼说他创作这部作品是"将当代艺术最新可能性服务于巴赫精神，作为巴赫艺术的有机延续——正如巴赫当年使用他那个时代最新艺术可能性一样。"
+
+---
+
+## 录音制作信息
+
+- **录音时间:** June, 1987
+- **录音地点:** Recital Hall at The State University of New York, Purchase
+- **Producer & Engineer:** Richard Lawson
+- **Executive Producers:** Jeffery P. La Fage & Victor E. Sachse
+- **Editor:** Vic Muenzer, Classic Digital, Glenview, IL
+- **Cover Photograph (detail):** Don Hunstein
+- **Piano:** Steinway D
+- **Graphic Design & Typography:** Classic Originals
+- **Printed in Canada**
+- **© & ℗:** 1988 Centaur Records, Inc.
+
+---

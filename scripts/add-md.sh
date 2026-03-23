@@ -22,7 +22,9 @@ echo "$MD_FILES" | while read -r file; do
 done
 
 # Add files
-echo "$MD_FILES" | xargs git add
+echo "$MD_FILES" | while read -r file; do
+    git add -- "$file"
+done
 
 echo ""
 echo "Added $(echo "$MD_FILES" | wc -l | tr -d ' ') Markdown file(s)"

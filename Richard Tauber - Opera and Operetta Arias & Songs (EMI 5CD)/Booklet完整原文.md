@@ -1,0 +1,578 @@
+# Booklet完整原文
+
+## 封面
+
+```
+EMI CLASSICS
+icon
+RICHARD TAUBER
+The Gentleman Tenor
+OPERA AND OPERETTA ARIAS
+SONGS
+5CD
+```
+
+## 封底
+
+```
+EMI CLASSICS
+icon
+RICHARD TAUBER
+
+CD1 Opera arias by MOZART, MÉHUL, OFFENBACH, THOMAS, BIZET, ROSSINI, PUCCINI, VERDI & LEONCAVALLO  76.09
+CD2 Opera arias by TCHAIKOVSKY, SMETANA, WEBER, FLOTOW, NESSLER, D'ALBERT, LORTZING, KIENZL, WAGNER, R. STRAUSS & KORNGOLD
+Lieder by SCHUBERT, SCHUMANN, WAGNER, GRIEG & R. STRAUSS  77.13
+CD3 LEHÁR Excerpts from Die lustige Witwe, Zigeunerliebe, Paganini, Der Zarewitsch, Friederike, Das Land des Lächelns, Schön ist die Welt & Giuditta  77.40
+CD4 Operetta arias by J. STRAUSS II, KÁLMÁN, HEUBERGER, TAUBER, STOLZ, ZELLER, FALL, BERTÉ, GÖTZE, PAUMGARTNER, ERWIN & SIECZYNSKI  76.30
+CD5 Popular songs including Pedro the Fisherman, Music in my heart, My heart and I, Kashmiri Song, All the things you are, Ah! Sweet Mystery of Life, We'll gather lilacs, Vienna, City of my Dreams & You are my heart's delight  76.43
+
+Richard Tauber tenor
+
+50999 6 98542 2 4 MONO ADD Manufactured and printed in the EU.
+Original sound recordings made by EMI Records Ltd and EMI Electrola GmbH.
+Digital remastering © as shown in booklet by EMI Records Ltd except where otherwise stated. This compilation © 2009 by EMI Records Ltd. © 2009 EMI Records Ltd.
+www.emiclassics.com www.emi-icons.com
+
+barcode 5 099969 854224
+```
+
+---
+
+## 内页目录
+
+# RICHARD TAUBER
+## Compact Disc 1 (76'09")
+
+### Wolfgang Amadeus Mozart 1756-1791
+ 1 **Nur ihrem Frieden** (Dalla sua pace, *Don Giovanni*)
+ Orchestra / Walter Goehr
+ Recorded: 8.VI.1939, Abbey Road Studios, London © 1991*
+ 3'51"
+
+ 2 **Il mio tesoro** (Don Giovanni)
+ Orchestra / Walter Goehr
+ Recorded: 8.VI.1939, Abbey Road Studios, London © 1991*
+ 4'14"
+
+ 3 **Dies Bildnis ist bezaubernd schön** (Die Zauberflöte)
+ Orchestra / Henry Geehl
+ Recorded: IV.1922, Berlin © 1991* EMI Electrola GmbH
+ 3'49"
+
+### Étienne Méhul 1763-1817
+ 4 **Vaterland! Ich mußt' dich früh verlassen** (Champs paternal, *Joseph*)
+ Orchestra / Henry Geehl
+ Recorded: 15.XI.1945, London © 1991*
+ 4'35"
+
+### Jacques Offenbach 1819-1880
+ 5 **Es war einmal am Hofe von Eisenach** (Il était une fois à la cour d'Eisenach, *Les Contes d'Hoffmann*)
+ (Il était une fois à la cour d'Eisenach, *Les Contes d'Hoffmann*)
+ 4'12"
+
+ 6 **Ha, wie in meiner Seele** (O Dieux, de quelle ivresse, *Les Contes d'Hoffmann*)
+ Chor (5) & Staatskapelle Berlin / Ernst Hauke
+ Recorded: 10.VI.1928, Berlin © 1991* EMI Electrola GmbH
+ 2'42"
+
+### Ambroise Thomas 1811-1896
+ 7 **Leb wohl, Mignon** (Adieu, Mignon, *Mignon*)
+ Orchestra / Hermann Weigert
+ Recorded: 9 & 12.III.1923, Berlin © 1991* EMI Electrola GmbH
+ 3'10"
+
+ 8 **Wie ihre Unschuld** (Elle ne croyait pas, *Mignon*)
+ Orchestra / Karl Besi
+ Recorded: 9 & 12.III.1923, Berlin © 1991* EMI Electrola GmbH
+ 4'13"
+
+### Georges Bizet 1838-1875
+ 9 **Bei meiner Mutter – Ich seh' die Mutter dort** (Parle-moi de ma mère! – Ma mère, je la vois, *Carmen*)
+ Elisabeth Rethberg soprano
+ Recorded: IV.1921, Berlin © 2009* EMI Electrola GmbH
+ 4'08"
+
+10 **Hier an dem Herzen treu geborgen** (La fleur que tu m'avais jetée, *Carmen*)
+ Orchestra / Karl Besi
+ Recorded: 9.III.1923, Berlin © 2009* EMI Electrola GmbH
+ 4'00"
+
+### Gioachino Rossini 1792-1868
+11 **Strahlt auf mich der Blitz des Goldes** (All'idea di quel metallo, *Il barbiere di Siviglia*)
+ Benno Ziegler baritone
+ Recorded: IV.1922, Berlin © 2009* EMI Electrola GmbH
+ 2'58"
+
+### Giacomo Puccini 1858-1924
+12 **Wie eiskalt ist dies' Händchen** (Che gelida manina, *La bohème*)
+ Orchestra / Karl Besi
+ Recorded: 25.IX.1924, Berlin © 1997* EMI Electrola GmbH
+ 4'05"
+
+13 **Die prunkende Schleife** (Quest'obi pomposa, *Madama Butterfly*)
+ Elisabeth Rethberg soprano
+ Recorded: IV.1922, Berlin © 1991* EMI Electrola GmbH
+ 7'58"
+
+14 **Oh, wie ich mein Vergehen – Leb wohl, mein Blütenreich** (Si, tutto in un istante – Addio, fiorito asil, *Madama Butterfly*)
+ Orchestra / Hermann Weigert
+ Recorded: 7.IV.1925, Berlin © 1997* EMI Electrola GmbH
+ 3'04"
+
+### Giuseppe Verdi 1813-1901
+15 **Und es blitzten die Sterne** (E lucevan le stelle, *Tosca*)
+ Großes Opern-Orchester / Manfred Gurlitt
+ Recorded: 27.IV.1932, Berlin © 1997* EMI Electrola GmbH
+ 2'26"
+
+16 **O weine nicht, Liù** (Non piangere, Liù, *Turandot*)
+ 2'45"
+
+17 **Keiner schlafe** (Nessun dorma, *Turandot*)
+ Orchester der Staatsoper, Berlin / George Szell
+ Recorded: 5.XI.1926, Berlin © 1991* EMI Electrola GmbH
+ 2'58"
+
+### Ruggero Leoncavallo 1857-1919
+20 **To act! – On with the motley** (Recitar!...Vesti la giubba, *Pagliacci*)
+ Orchestra / G. Walter
+ Recorded: 9.IX.1936, London © 1997*
+ 3'00"
+
+---
+
+## Compact Disc 2 (77'13")
+
+### Pyotr Ilyich Tchaikovsky 1840-1893
+ 1 **Wohin seid ihr entschwunden...Was wird der nächste Tag mir bringen** (Lensky's Aria, *Eugene Onegin*)
+ Orchestra / Karl Besi
+ Recorded: 9.III.1923, Berlin © 1991* EMI Electrola GmbH
+ 4'01"
+
+### Bedřich Smetana 1824-1884
+ 2 **Armer Narr...Es muß gelingen** (The Bartered Bride)
+ Recorded: 28.VI.1919, Berlin © 1991* EMI Electrola GmbH
+ 3'07"
+
+### Carl Maria von Weber 1786-1826
+ 3 **Nein, länger trag' ich nicht die Qualen...Durch die Wälder** (Der Freischütz)
+ Recorded: 24.VIII.1946, London © 1997*
+ 6'15"
+
+### Friedrich von Flotow 1812-1883
+ 4 **Ach! so fromm** (*Martha*)
+ Recorded: 26.VI.1919, Berlin © 2009* EMI Electrola GmbH
+ 3'18"
+
+ 5 **Wie das schnattert, wie das plappert** (*Martha*)
+ Benno Ziegler baritone
+ Recorded: IV.1922, Berlin © 2009* EMI Electrola GmbH
+ 3'54"
+
+### Viktor Nessler 1841-1890
+ 6 **Behüt' dich Gott, es wär' so schön gewesen** (Der Trompeter von Säckingen)
+ Orchester des Großen Schauspielhauses Berlin / Ernst Hauke
+ Recorded: 30.I.1928, Berlin © 2009* EMI Electrola GmbH
+ 3'37"
+
+### Eugene d'Albert 1864-1932
+ 7 **Wie ich nun gestern abend in der Hütte liege** (*Tiefland*)
+ Staatskapelle Berlin / Ernst Hauke
+ Recorded: 24.V.1928, Berlin © 2009* EMI Electrola GmbH
+ 3'45"
+
+### Albert Lortzing 1801-1851
+ 8 **Vater, Mutter, Schwestern, Brüder** (*Undine*)
+ Orchester des Großen Schauspielhauses Berlin / Ernst Hauke
+ Recorded: 30.I.1928, Berlin © 1997*
+ 3'36"
+
+### Wilhelm Kienzl 1857-1941
+ 9 **Selig sind, die Verfolgung leiden** (Der Evangelimann)
+ Odeon-Opern-Orchester / Frieder Weissmann
+ Recorded: 30.I.1928, Berlin © 1997*
+ 2'45"
+
+### Richard Wagner 1813-1883
+10 **Winterstürme wichen dem Wonnemond** (Die Walküre)
+ Recorded: IV.1920, Berlin © 2009* EMI Electrola GmbH
+ 3'14"
+
+11 **Am stillen Herd** (Die Meistersinger von Nürnberg)
+ 3'35"
+
+12 **Morgendlich leuchtend** (Prize Song, Die Meistersinger von Nürnberg)
+ Orchester der Staatsoper Berlin / George Szell
+ Recorded: 23.V.1927, Berlin © 1991* EMI Electrola GmbH
+ 3'32"
+
+### Richard Strauss 1864-1949
+13 **Di rigori armato il seno** (Der Rosenkavalier)
+ Recorded: 2 or 3.III or IV.1920, Berlin © 1997* EMI Electrola GmbH
+ 2'46"
+
+### Erich Wolfgang Korngold 1897-1957
+14 **Glück, das mir verblieb** (Mariettas Lied, *Die tote Stadt*)
+ 4'06"
+
+15 **O Freund, ich werde nicht wiedersehen** (Die tote Stadt)
+ Lotte Lehmann soprano (14)
+ Orchestra / George Szell
+ Recorded: 17.IV.1924, Berlin © 1997* EMI Electrola GmbH
+ 3'57"
+
+### Franz Schubert 1797-1828
+16 **Der Lindenbaum** (Winterreise)
+ Mischa Spolianski piano
+ Recorded: 20.VI.1927, Berlin © 2009* (16) & © 1988* EMI Electrola GmbH
+ 2'56"
+
+17 **Die Post** (Winterreise)
+ Mischa Spolianski piano
+ Recorded: 20.VI.1927, Berlin © 2009* (16) & © 1988* EMI Electrola GmbH
+ 2'21"
+
+### Robert Schumann 1810-1856
+18 **Ständchen** (Leise flehen meine Lieder)
+ Odeon-Kammer-Orchester / Frieder Weissmann
+ Recorded: 1.II.1933, Berlin © 1997* EMI Electrola GmbH
+ 3'16"
+
+### Richard Wagner
+19 **Der Nußbaum**
+ Recorded: unknown © 1988* EMI Electrola GmbH
+ 3'13"
+
+20 **Träume** (Wesendonck-Lieder)
+ Recorded: 26.VI.1919, Berlin © 2009* EMI Electrola GmbH
+ 4'01"
+
+### Edvard Grieg 1843-1907
+21 **Ich liebe dich** Op.5 No.3
+ Karl Besi piano
+ Recorded: 17.III.1924, Berlin © 2009* EMI Electrola GmbH
+ 2'35"
+
+### Richard Strauss
+22 **Zueignung** Op.10 No.1
+ Recorded: 26.VI.1919, Berlin © 2009* EMI Electrola GmbH
+ 2'09"
+
+---
+
+## Compact Disc 3 (77'40")
+
+### Franz Lehár 1870-1948
+### Die lustige Witwe
+ 1 **Vilja-Lied**  3'04"
+ 2 **Lippen schweigen**  3'19"
+ Orchestra / Erich Korngold (2)
+ Recorded: 5.I.1931 & 26.1.1932 (2), Berlin © 1989* EMI Electrola GmbH
+
+### Zigeunerliebe
+ 3 **Hör' ich Zimbalklänge**  4'20"
+ Orchester des Deutschen Künstlertheaters Berlin / Ernst Hauke
+ Recorded: 26.II.1927, Berlin © 1989* EMI Electrola GmbH
+
+### Paganini
+ 4 **Schönes Italien**  2'20"
+ 5 **So jung noch...Was ich denke, was ich fühle**  4'51"
+ 6 **Gern hab' ich die Frau'n geküßt**  3'51"
+ 7 **Sag mir...Niemand liebt dich so wie ich**  4'21"
+ Carlotta Vanconti soprano (5, 7)
+ Orchester des Deutschen Künstlertheaters Berlin / Ernst Hauke (6)
+ Recorded: 11.I.1926 (4, 5, 7) & 24.V.1927 (6), Berlin © 2001* EMI Electrola GmbH
+
+### Der Zarewitsch
+ 8 **Allein, wieder allein...Es steht ein Soldat am Wolgastrand**  4'06"
+ 9 **Mädel, wohniges Mädel...Willst du? Komm und mach mich glücklich**  4'19"
+ Orchester des Deutschen Künstlertheaters Berlin / Ernst Hauke
+ Recorded: 25.II.1927, Berlin © 2001* EMI Electrola GmbH
+
+### Friederike
+10 **O Mädchen, mein Mädchen**  3'31"
+ Staatskapelle Berlin / Ernst Hauke
+ Recorded: 2.X.1928, Berlin © 2001* EMI Electrola GmbH
+
+### Das Land des Lächelns
+11 **Ich trete ins Zimmer...Immer nur lächeln**  3'18"
+12 **Mein lieber Prinz...Bei einem Tee en deux**  3'22"
+13 **Von Apfelblüten einen Kranz**  3'16"
+14 **Wer hat die Liebe uns ins Herz gesenkt?**  4'01"
+15 **Dein ist mein ganzes Herz!**  3'19"
+
+### Giuditta
+16 **Ihr Götter, sagt...Kann es möglich sein?**  2'34"
+ Vera Schwarz soprano (12, 14)
+ Staatskapelle Berlin / Franz Lehár
+ Recorded: 3-4.X.1929, Berlin © 1993* EMI Electrola GmbH
+
+17 **Bruder Leichtsin, so werd' ich genannt...Schön ist die Welt**  3'24"
+ Orchester des Metropol-Theaters Berlin / Franz Schönbaumsfeld
+ Recorded: 28.X.1930, Berlin © 2001* EMI Electrola GmbH
+
+18 **Freunde, das Leben ist lebenswert!**  3'15"
+19 **Schön wie die blaue Sommernacht**  3'21"
+20 **Welch tiefes Rätsel ist die Liebe...Du bist meine Sonne!**  3'20"
+21 **So wie um den Sonnenball**  3'04"
+22 **'Schönste der Frau'n' begann das Lied**  3'14"
+ Jarmila Novotná soprano (19)
+ Wiener Philharmoniker / Franz Lehár
+ Recorded: 11.I.1934, Mittlerer Konzertaussaal, Vienna © 1993* EMI Electrola GmbH
+
+---
+
+## Compact Disc 4 (76'30")
+
+### Johann Strauss II 1825-1899
+ 1 **Dieser Anstand, so manierlich** (Die Fledermaus)  3'42"
+ 2 **Herr Chevalier** (Die Fledermaus)  4'06"
+ 3 **Genug damit, genug!** (Die Fledermaus)  3'48"
+ Vera Schwarz (1), Lotte Lehmann, Grete Merrem-Nikisch sopranos
+ Karin Branzell mezzo-soprano - Waldemar Staegemann tenor
+ Staatskapelle Berlin / Ernst Hauke
+ Recorded: 29.X (1), 17.XII.1928 © 1989* EMI Electrola GmbH
+
+### Emmerich Kálmán 1882-1953
+ 7 **Zwei Märchenaugen** (Die Zirkusprinzessin)  4'24"
+ Orchester des Deutschen Künstlertheaters Berlin / Ernst Haukee
+ Recorded: 26.II.1927, Berlin © 1989* EMI Electrola GmbH
+
+ 8 **Wenn es Abend wird...Grüß mir mein Wien** (Gräfin Maritza)  3'17"
+ Odeon-Künstler-Orchester / Frieder Wassermann
+ Recorded: 14.I.1932, Berlin © 1989* EMI Electrola GmbH
+
+### Richard Heuberger 1850-1914
+11 **Geh'n wir ins Chambre séparée** (Der Opernball)  3'03"
+ Odeon-Künstler-Orchester / Frieder Wassermann
+ Recorded: 17.III.1931, Berlin © 1997* EMI Electrola GmbH
+
+### Richard Tauber 1891-1948
+12 **Du bist die Welt für mich** (Der singende Traum)  3'38"
+ Orchestra / Anton Paulik
+ Recorded: 28.IX.1934, London © 2009* EMI Electrola GmbH
+
+13 **Wer eine Mutter zu Hause hat**  3'14"
+ Orchestra / Anton Paulik
+ Recorded: 28.IX.1934, London © 2009* EMI Electrola GmbH
+
+### Robert Stolz 1880-1975
+14 **Adieu, mein kleiner Gardeoffizler** (from the film Das Lied ist aus)  3'04"
+ Orchestra / Frieder Wassermann
+ Recorded: 5.I.1931, Berlin © 1989* EMI Electrola GmbH
+
+15 **Da draußen im duftenden Garten** (Ein Walzertraum)  3'12"
+ Orchestra / Franz Schönbaumsfeld
+ Recorded: 3.IX.1932, Berlin © 1989* EMI Electrola GmbH
+
+### Carl Zeller 1842-1898
+16 **Wie mein Ahni zwanzig Jahr** (Der Vogelhändler)  3'22"
+ Orchestra / Ernst Hauke
+ Recorded: 19.V.1928, Berlin © 1989* EMI Electrola GmbH
+
+### Leo Fall 1873-1925
+17 **Willst du an die Welt vergessen...Ein Walzer muß es sein** (Die Rose von Stambul)  4'14"
+ Carlotta Vanconti soprano
+ Staatskapelle Berlin / Ernst Hauke
+ Recorded: 19.VI.1928, Berlin © 2009* EMI Electrola GmbH
+
+### Heinrich Berté 1858-1924
+18 **Was macht glücklich...Was Schön'res könnte's sein als ein Wiener Lied** (Das Dreimäderlhaus)  4'12"
+ Carlotta Vanconti soprano
+ Staatskapelle Berlin / Ernst Hauke
+ Recorded: 19.VI.1928, Berlin © 2009* EMI Electrola GmbH
+
+### Walter Wilhelm Götze 1883-1961
+19 **Was wär' mein Lied, könnt' ich's dir nicht singen** (Der Page des Königs)  3'04"
+ Odeon-Künstler-Orchestra / Frieder Wassermann
+ Recorded: 15.III.1933, Berlin © 2009* EMI Electrola GmbH
+
+### Bernhard Paumgartner 1887-1975
+20 **Ach, manche vergangene Nacht hab' ich mit reizenden Frauen verbracht** (Rossini in Neapel)  3'36"
+ Orchester der Wiener Staatsoper / Josef Krips
+ Recorded: I.1937, Vienna © 2009* EMI Electrola GmbH
+
+### Ralph Erwin 1896-1943
+21 **Ich küsse Ihre Hand, Madame**  2'46"
+ Dajos Béla mit seinem Künstler-Orchester
+ Recorded: 28.VIII.1928 © 1997* EMI Electrola GmbH
+
+### Rudolf Sieczynski 1879-1952
+22 **Wien, du Stadt meiner Träume**  3'16"
+ Orchester des Großen Schauspielhauses Berlin / Ernst Hauke
+ Recorded: 31.I.1928, Berlin © 1989* EMI Electrola GmbH
+
+---
+
+## Compact Disc 5 (76'43")
+
+### Harry Parr Davies 1914-1955
+ 1 **Pedro the Fisherman** (The Lisbon Story)  3'22"
+ George Melachrino and his Orchestra
+ Recorded: 5.II.1946, Abbey Road Studios, London © 2009*
+
+### Carl Zeller
+ 2 **Don't be cross** (The Foreman)  3'14"
+ Recorded: 9.I.1939, Abbey Road Studios, London © 2009*
+
+### Robert Stolz
+ 3 **Don't ask me why**  3'21"
+ Recorded: 12.VIII.1942, Abbey Road Studios, London © 2009*
+
+### Richard Tauber
+ 4 **There are angels outside heaven** (Old Chelsea)  3'07"
+ 5 **Music in my heart** (Old Chelsea)  3'14"
+ 6 **My heart and I** (Old Chelsea)  3'15"
+ Nancy Brown, Carol Lynne sopranos (4) · Chorus & Orchestra / Richard Tauber
+ Recorded: II.1943, Abbey Road Studios, London © 2009*
+
+### Eduard Künneker 1885-1953
+ 7 **Goodnight, pretty maiden** (The Cousin from Nowhere)  3'09"
+ Recorded: 8.VI.1939, London © 2009*
+
+### Johann Strauss II
+ 8 **One day when we were young** (from the film The Great Waltz)  2'58"
+ 9 **I'm in love with Vienna** (from the film The Great Waltz)  2'30"
+ Recorded: 9.I.1939, Abbey Road Studios, London © 1991* DRM Testament
+
+### Oley Speaks 1874-1948
+10 **Sylvia**  2'47"
+ Recorded: 9.I.1939, Abbey Road Studios, London © 1988*
+
+### Charles Marshall 1808-1874
+11 **I hear you calling me**  3'29"
+ Orchestra / G. Walter
+ Recorded: 22.IV.1936, Abbey Road Studios, London © 1991* DRM Testament
+
+### Amy Woodforde-Finden 1860-1919
+12 **Kashmiri Song** (Pale hands I love)  3'30"
+ Percy Kahn piano
+ Recorded: 8.V.1936, Abbey Road Studios, London © 1991* DRM Testament
+
+### Antoni-Pérez Moya 1894-1964
+13 **Song of Songs**  3'04"
+ Orchestra / Walter Goehr
+ Recorded: 5.VII.1937, Abbey Road Studios, London © 2009*
+
+### Jerome Kern 1885-1945
+14 **All the things you are**  3'16"
+ Orchestra / Henry Geehl
+ Recorded: 19.XII.1940, Abbey Road Studios, London © 2009*
+
+### Dino Olivieri
+15 **Au revoir**  3'21"
+ Orchestra / Henry Geehl
+ Recorded: 6.II.1945, Abbey Road Studios, London © 2009*
+
+### Cesare Bixio 1898-1978
+16 **Love's last word is spoken**  3'17"
+ Orchestra / Phil Green
+ Recorded: 3.VII.1942, Abbey Road Studios, London © 1988*
+
+### Victor Herbert 1859-1924
+17 **Ah! Sweet Mystery of Life** (Naughty Marietta)  2'29"
+ Orchestra / G. Walter
+ Recorded: 13.VII.1937, Abbey Road Studios, London © 1991* DRM Testament
+
+### Ivor Novello 1893-1951
+18 **We'll gather lilacs** (Perchance to Dream)  3'29"
+ Orchestra / Henry Geehl
+ Recorded: 12.IV.1945, Abbey Road Studios, London © 2009*
+
+19 **Waltz of my heart** (The Dancing Years)  3'22"
+ Recorded: 13.IV.1939, Abbey Road Studios, London © 1991* DRM Testament
+
+### Rudolf Sieczynski
+20 **Vienna, City of my Dreams**  3'09"
+ Orchestra / Idris Lewis
+ Recorded: 25.VI.1935, Abbey Road Studios, London © 2009*
+
+### Franz Lehár
+21 **When the moon is shining white** (Serenade, *Frasquita*)  3'14"
+ Recorded: 10.I.1939, Abbey Road Studios, London © 2001*
+
+22 **Girls were made to love and kiss** (*Paganini*)  3'16"
+23 **Love never comes too late** (*Paganini*)  3'14"
+ Evelyn Laye soprano (23)
+ Lyceum Theatre Orchestra / Frank Collinson
+ Recorded: 24, 25.V.1937, Abbey Road Studios, London © 2001*
+
+24 **You are my heart's delight** (The Land of Smiles)  3'23"
+ Recorded: 9.IX.1937, Abbey Road Studios, London © 2001*
+
+*Richard Tauber tenor*
+
+Performers unknown unless otherwise stated
+Producers and balance engineers: unknown
+Compilation producer: Tony Locantro
+Compilation engineer: Andrew Walter at Abbey Road Studios
+Design: Darren Rumney for WLP Ltd. · Editorial: Peter Quantrill for WLP Ltd.
+Cover photo: EMI Archives
+Original sound recordings made by EMI Records Ltd and EMI Electrola GmbH.
+*Digital remastering © as shown by EMI Records Ltd except where otherwise stated.
+This compilation © 2009 by EMI Records Ltd. © 2009 EMI Records Ltd
+www.emiclassics.com www.emi-icons.com
+ADD
+
+---
+
+## 传记文章 (英文)
+
+# Richard Tauber
+
+Richard Tauber is now widely recognised as having been one of the foremost singers of the last century, assured of his place in the pantheon. His name appears, for instance, second only to that of Caruso among the tenors of comparatively recent times dealt with in John Potter's *Tenor: History of a Voice* (Yale University Press, 2009). Next in that list, however, comes Mario Lanza, and we have to remind ourselves that in the view of many musicians 'Lanza' is a name scarcely to be mentioned and Caruso himself has no very sure guarantee of respectability. Perhaps the placing illustrates Tauber's position rather well, halfway between the faintly suspect world of opera star and that of the screen celebrity, which is definitely beyond the pale.
+
+By now, over 60 years after Tauber's death, it may come as a surprise to hear that in his own time his 'placing' may have been subject to such vagaries of taste and reputation. And certainly if the New Grove Dictionary of Music and Musicians (Macmillan, 2001) is a fair guide to 'establishment' opinion, we can see that the attitude to him now is entirely one of respect. The only hint of distaste occurs in the very last phrase which refers to the singer's 'innate gift for turning dross into gold'. This, of course, alludes to the high proportion of material considered by 'serious' musicians and their public to be second or third-rate sung by Tauber in concerts or on record. Artistic irresponsibility (it is then argued) is palliated by the claim that he took this 'dross' and worked the alchemist's magic upon it. But that is a latter-day judgment.
+
+During his life it was customary to read of his spending too much time with Lehár and lesser company in the land of smiles, so that when he returned to Mozart and Schubert he brought a debased currency with him. To take a personal example, I remember an older man of catholic musical taste expressing unfeligned surprise that I, who appreciated the art of John McCormack, could also profess admiration for Tauber. McCormack like him had a large popular repertoire, but in some way it appeared that Tauber was contaminated by his.
+
+Probably nothing was more instrumental in his rehabilitation than his appearance, in the last year of his life, with the Vienna State Opera at Covent Garden in a performance of *Don Giovanni*. This was on 27 September 1947, when he was already a mortally sick man (he died on 8 January the following year). Members of his old company, singing with him for the first time, were deeply moved and impressed, and Elisabeth Schwarzkopf, who sang Donna Elvira, always spoke of the experience as one of the most unforgettable of her whole career. His voice had lost much of its former richness and his breath could not command the span it once had done (he was singing with the support of a single lung), but there was enough of style and grace to show a new generation just how genuine was the foundation of this famous singer's art. The event acted also as a reminder of Tauber the opera singer in what seemed like another age in pre-war Vienna, Dresden and Berlin.
+
+These, in Dresden especially, were the golden years of youth, with repertoire and powers constantly expanding, so that within five years of his career there he is reputed to have sung at least 64 different roles (listed by James Dennis, *Record Collector XVIII*, 11/12, 1969). An extraordinary exuberance characterises this period, much of it mental. He could learn a new part in less time than it would take most singers to start thinking about it. He sang his first Faust at two days' notice, had just one hour's piano rehearsal (with the composer) before appearing for the first time as Bacchus in Richard Strauss's *Ariadne auf Naxos*, and rescued the German premiere of *Turandot* when the scheduled Calaf went sick three days before the performance. He took this energy and resourcefulness to Vienna with him in 1922, and there he remained as leading lyric tenor (a role he shared with Alfred Piccaver and in the company of Lotte Lehmann and Maria Jeritza as leading sopranos) till driven away from the country by barbarism in 1938.
+
+Tauber was Jewish on his father's side. The parents never married, and he was brought up with his mother's name (widowed from a previous marriage) of Seiffert. The father was a travelling actor, the mother a singer, and Richard developed his musical interests from an early age. The place of his birth (on 16 May 1891) was Linz in Austria, and his principal place of education Wiesbaden. Vocal studies took a turn for the better when he became a pupil of Carl Beines, who stopped him forcing and developed the voice from the promising middle register, observing for the first time proper disciplines. He made a concert debut in 1912 and his operatic debut, as Tamino in *Die Zauberflöte*, at Dresden. The contract at Dresden led to guest appearances in Berlin (1919) and Vienna (1920). His reputation grew steadily with special honours in Mozart and special credit for his musical reliability. Then in 1921 he met Lehár. Tauber sang in the new operetta *Frasquita* and changed its fortunes, from dismal failure to brilliant success, overnight.
+
+This, obviously, was good for Lehár and for Tauber's fame and prosperity. It was much less good for his artistic reputation and, on balance, bad for music. Tauber was no doubt the ideal tenor for Lehár but there were others with voice and style, if not quite the personality, to do him justice. It cannot be denied that Tauber was the ideal tenor for Lehár operetta and brought them from dismal failure to brilliant success, overnight. That is what happened, and the rest is history.
+
+subtle play of vocal tones. Grieg's *Ich liebe dich* is the most Tauberesque, and Richard Strauss's *Zueignung* the most impressive in terms of power and fervour.
+
+The operatic selections are more representative and more varied. Some of the Wagner recordings show Tauber in roles he never sang on stage. Some others remind us of the short upward range: in the stretta from *Il trovatore* (again not one of his stage operas) he transposes it a tone down, so that the top Cs are B flats. In the *Bohème* narrative and *Nessun dorma* ('Keiner schlafe' in German), the highest note is merely 'flicked'; it is skilfully done and in the *Turandot* solo defensible (the written note is only a short one), but still, in tenorial terms, it is a bit of artful dodging. Other operas (*Der Freischütz*, *Martha*, Eugene Onegin, for example) were in his repertoire, and though the French excerpts heard here (*Mignon, Hoffmann, Carmen*) form such a delightful part of the programme, we note that they are also sung in German. Among the supreme items of the collection are the duets with sopranos Lotte Lehmann and Elisabeth Rethberg: in the *Carmen* duet, especially, it is rare to hear José's music sung with such fidelity and care for his partner. And then there is the Mozart. It is as a Mozart tenor that the best part of Tauber's reputation stands. He made his debut in *Die Zauberflöte* and gave his last performance in *Don Giovanni*. The elegance of phrasing and nuance in the 'Dalla sua pace' ('Nur ihrem Frieden'), placed like a standard-bearer at the beginning of the whole programme, is typical. The late recording of 'Il mio tesoro' shows the technical skill (breath control, flexibility, clarity of definition) but it also shows more, for this is Mozart singing of something quite beyond 'correctness'. This has character, individuality, strength. And that was the mark of all that Tauber did. Voice and style alike were irreplaceably his own. If a prize were to be awarded for the most distinctively individual among the great tenors on record, Tauber would certainly be among the finalists and the prize might well be his.
+
+© John Steane, 2009
+
+---
+
+*(German version by Eckhardt van den Hoogen)*
+
+# Richard Tauber (German)
+
+Richard Tauber wird heute gemeinhin zu den führenden Sängern des vorigen Jahrhunderts gerechnet und nimmt einen festen Platz im Pantheon ein. So führt ihn John Potter in seinem Buch *Blech Tenor: History of a Voice* (London 2009) direkt hinter Enrico Caruso als einen der ersten Vertreter des Faches in der jüngeren Vergangenheit auf, bevor er dann freilich direkt zu Mario Lanza kommt – was uns wiederum daran erinnert, dass man diesen Namen daran erinnert, dass man diesen Namen
+
+Als Mozarts-tenor genoß Richard Tauber eine besondern große Reputation. Er debütierte in der Zauberflöte, und seine letzte Vorstellung galt Don Giovanni. Charakteristisch sind die eleganten Phrasen und Nuancen des „Dalla sua pace“ („Nur ihrem Frieden“), das wie ein Bannerträger am Anfang des gesamten Programms steht. Die späte Aufnahme des „Il mio tesoro“ verrät in ihrer Atomkontrolle, Flexibilität und klaren Darstellungsfähigkeit das ganze technische Vermögen des Künstlers – doch darüber hinaus spricht sie von einem Mozart, der die bloße „Korrektion“ hinter sich läßt: Sie zeigt Charakter, Kraft und Persönlichkeit. Und das war das Markenzeichen von Richard Taubers Wirken insgesamt. Er hatte eine ganz eigene Stimme, einen ganz eigenen Stil. Wenn man einen Preis für den Unverwechselbaren unter den großen Tenören verleihen wollte, käme Tauber sicherlich ins Finale, und vielleicht ginge er sogar als Sieger heim.
+
+Übersetzung: Eckhardt van den Hoogen
+
+# Richard Tauber (French translation by Dennis Collins)
+
+Richard Tauber est désormais largement reconnu comme l'un des plus grands chanteurs du siècle dernier, assuré de sa place au panthéon. Son nom apparaît en deuxième position, après celui du seul Caruso, parmi les ténors de l'époque relativement récente qu'évoque John Potter dans *Tenor: History of a Voice* (Yale University Press, 2009). Le suivant de cette liste est cependant Mario Lanza, et il faut se rappeler que dans l'esprit de bon nombre de musiciens, Lanza - est un nom qu'on peut à peine citer, et que Caruso lui-même n'était pas garanti de respectabilité. Peut-être ce classement illustre-t-il assez bien la position de Tauber, à mi-chemin entre le monde vaguement suspect de la star lyrique et celui de la célébrité du grand écran, franchement infréquentable.
+
+Aujourd'hui, plus de soixante ans après la mort de Tauber, il est peut-être surprenant d'entendre qu'en son temps le classement pouvait être soumis à de telles caprices du goût et de la réputation. Et, si le New Grove Dictionary of Music and Musicians (Macmillan, 2001) est un bon reflet de l'opinion « établie », on voit incontestablement que l'attitude envers lui est désormais tout à fait respectueuse. Il se trouve dans la toute dernière phrase, qui fait référence à son don inné pour transformer les scories en or -. C'est bien entendu une allusion à la forte proportion de répertoire que les musiciens « sérieux » et leur public considèrent comme de deuxième ou de
+
+près de la même manière, et je dirais qu'une première réaction plus naturelle serait de se réjouir de la clarté et de l'expressivité de sa diction anglaise. On notera aussi que, s'il utilise le microphone de manière experte pour obtenir un style intimiste dans des chansons comme *Sylvia* et *We'll gather lilacs*, il ne recourt pas à une production vocale de crooner, Souvent, les inflexions dans des chansons sont inoubliables – la chanson cachemirienne est un chef-d'œuvre dans l'art de la modulation du timbre, Il est maître également de l'alternance entre entrain et détente ( = I'm in love with Vienna en est un parfait exemple). Et les chansons elles-mêmes survivent remarquablement bien : ce ne sont pas, pour l'essentiel, des exemples de scories que Tauber a transformés en or. - *All the things you are* est ainsi à tous égards bien meilleur que *Du bist die Welt*, et, au très léger *Ich küsse Ihre Hand, Madame* je préfère de beaucoup *Pedro the Fisherman*, any day.
+
+In operetta (CDs 3 & 4) Tauber is certainly in his element. The concerted finale to Act 2 of *Die Fledermaus* is a lovely example, with phrases such as the reprise of 'Ah what a night' so intuitively right that one wants to laugh for sheer joy. His Lehár too can be so infallibly idiomatic – think of 'Gern hab' ich die Frau'n geküßt'. This is the world of 'every Tauberlied a Zauberlied' as the American critic Irving Kolodin happily put it. And he always made sure that the magic touch would turn up sooner or later.
+
+We nevertheless look to the records of opera and lieder for something more. On the second CD the group of seven lieder (including one by Grieg) provides a sample. 'Der Lindenbaum' is broadly phrased, 'Die Post' vivid in contrast, the famous 'Ständchen' more distinctly a lover's song than in most performances (and holding the attention despite competition of a distracting kind from the bizarre accompaniment). 'Der Nußbaum' is not quite the dreamy enchantment we might have hoped for; the recording itself may be partly to blame (the voice too close), but the rhythm takes on a cruder character, alien to the song's exquisite delicacy. Wagner's 'Träume', on the other hand, is perhaps best of all, with the
+
+Wagner montrent Tauber dans des rôles qu'il n'a jamais chantés sur scène. Plusieurs nous rappellent ses limites dans l'aigu : dans la stretta d'Il trovatore (là encore, un opéra qu'il ne chanta pas sur scène), il transpose un ton plus bas, si bien que les dozt Bémol dans les Cs deviennent des si bémol. Dans le récit de La bohème et Nessun dorma d'ailleurs, la note la plus haute est simplement effleurée ; c'est défendable (la note écrite est brève), mais néanmoins, sur le plan vocal, c'est une habile esquive, D'autres opéras (Der Freischütz, Martha, Eugène Onegin, par exemple) étaient à son répertoire, et, bien que les extraits français entendus ici (Mignon, Hoffmann, Carmen) forment une part merveilleuse du programme, on note qu'ils sont également chantés en allemand. Parmi les joyaux de l'anthologie figurent les duos avec les sopranos Lotte Lehmann et Elisabeth Rethberg : dans le duo de Carmen, spécialement, il est rare d'entendre la musique de José chantée avec une telle fidélité et une telle attention à sa partenaire. Et puis il y a Mozart. C'est justement ténor mozartien que Tauber est avant tout réputé. Il fit ses débuts dans Die Zauberflöte, et sa dernière apparition dans Don Giovanni. L'élégance du phrasé et des nuances dans *Dalla sua pace* (= « Nur ihrem Friede »), placé ici en porte-drapeau au début de tout le programme, est typique. L'enregistrement tardif de « Il mio tesoro » révèle sa maîtrise technique (souffle, flexibilité, clarté de définition), mais révèle aussi clarté de définition, mais révèle aussi davantage de caractère, de l'individualité, de la force. Et c'était la marque de tout ce que faisait Tauber. Il était de marque de tout ce que faisait Tauber. S'il fallait décerner un prix au plus franchement personnalité des grands ténors parmi des finalistes, Tauber serait certainement parmi les finalistes, et le prix pourrait bien lui revenir.
+
+John Steane
+Traduction : Dennis Collins
+
+---
+
+## Legal Information
+
+Thank you for buying this set and thereby supporting all those involved in the making of it. Please remember that this record and its packaging are protected by copyright law. Please don't lend discs to others to copy. give away illegal copies of discs, or use internet services that promote the illegal distribution of copyright recordings. Such actions threaten the livelihood of musicians and everyone else involved in producing music.
+
+Applicable laws provide severe civil and criminal penalties for the unauthorised reproduction, distribution and digital transmission of copyright sound recordings.

@@ -1,0 +1,64 @@
+# Booklet完整原文
+
+## 封面
+JANÁČEK
+OPERA SUITES
+
+THE CUNNING
+LITTLE VIXEN
+FROM THE HOUSE
+OF THE DEAD
+THE EXCURSIONS
+OF MR. BROUČEK
+
+JIŘÍ BĚLOHLÁVEK PRAGUE SYMPHONY ORCHESTRA
+SUPRAPHON
+
+## 封底
+LEOŠ JANÁČEK (1854-1928)
+OPERA SUITES
+JIŘÍ BĚLOHLÁVEK
+PRAGUE SYMPHONY ORCHESTRA
+
+Recorded digitally in the Smetana Hall of the Municipal House, Prague, on February 11-14, 1999
+Recording director Jaroslav Rybář
+Sound engineer Stanislav Sykora
+Sound assistant Jiří Hesoun
+Sponsored by the Leoš Janáček Foundation
+Producer and editor Petr Vít
+℗ 1999 Supraphon a.s.
+© 1999 Supraphon a.s.
+Pressed by Sonopress, Germany
+
+### Tracklist
+1. The Cunning Little Vixen 16:58
+(arrangement Václav Talich, revision Viktor Smetáček)
+I. Andante. Allegro. Stesso tempo. Meno mosso. Presto. Tempo I 9:19
+II. Andante. Moderato. Allegro 7:34
+
+2. From the House of the Dead 20:51
+(arrangement František Jílek)
+I. Moderato. Allegro. Presto. Tempo I. Con moto. Allegro. Presto. Maestoso. Allegro 5:42
+II. Andante. Allegro. Con moto. Allegretto. Andante. Moderato. Allegro. Presto. Andante 11:00
+III. Tempo I. Moderato. Maestoso 4:04
+
+3. The Excursions of Mr. Brouček 23:22
+(selection and arrangement Jaroslav Smolka)
+World première recording
+I. Introduction. The late Evening 3:12
+II. Moon Waltz 3:51
+III. Before Dawn 4:51
+IV. Between Dream and Reality 4:06
+V. Choral Song of the Hussites 3:04
+VI. Procession of the Victors 4:02
+
+DDD STEREO
+SU 3436-2 031
+Total time 61:30
+MADE IN THE CZECH REPUBLIC
+LC 00355
+Supraphon a. s.
+Palackého 1
+112 99 Prague 1
+www.supraphon.cz
+Barcode: 0 99925 34362 0

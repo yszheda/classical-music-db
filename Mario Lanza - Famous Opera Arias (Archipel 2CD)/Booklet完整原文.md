@@ -1,0 +1,103 @@
+# Booklet完整原文
+
+## 封面
+2 CD
+ARCHIPEL
+
+FAMOUS OPERA ARIAS
+MARIO LANZA
+
+Opera works included:
+PAGLIACCI
+RIGOLETTO
+TOSCA
+L'ELISIR D'AMORE
+AIDA
+LA BOHEME
+ANDREA CHENIER
+LA GIOCONDA
+IL TROVATORE
+CARMEN
+L'AFRICANA
+MARTHA
+LA TRAVIATA
+MADAMA BUTTERFLY
+DER ROSENKAVALIER
+TURANDOT
+FEDORA
+OTELLO
+
+## 封底
+MARIO LANZA
+
+Opera works included:
+PAGLIACCI
+RIGOLETTO
+TOSCA
+L'ELISIR D'AMORE
+AIDA
+LA BOHEME
+ANDREA CHENIER
+LA GIOCONDA
+IL TROVATORE
+CARMEN
+L'AFRICANA
+MARTHA
+LA TRAVIATA
+MADAMA BUTTERFLY
+DER ROSENKAVALIER
+TURANDOT
+FEDORA
+OTELLO
+
+RCA Orchestra conducted by Ray Heindorf and Ray Sinatra
+
+CD 1: T.T.: 47:03
+CD 2: T.T.: 47:06
+
+Barcode: 4 035122 404715
+ARCHIPEL DESERT ISLAND COLLECTION
+P / 2010
+Manufactured in E.U.
+Produced by Archipel Ltd. / MCPS
+
+Design: Air Studio
+info@spazio.org
+
+---
+
+## 内页曲目列表
+
+### COMPACT DISC NO. 1 ARPCD 0471 - T.T. 47'03"
+1. LEONCAVALLO: Pagliacci: "Vesti la giubba" 03'41"
+2. VERDI: Rigoletto: "Questa o quella" 01'47"
+3. VERDI: Rigoletto: "La donna è mobile" 02'05"
+4. VERDI: Rigoletto: "Parmi veder le lagrime" 02'40"
+5. PUCCINI: Tosca: "Recondita armonia" 02'44"
+6. PUCCINI: Tosca: "E lucevan le stelle" 03'05"
+7. DONIZETTI: L'elisir d'amore: "Una furtiva lagrima" 04'12"
+8. VERDI: Aida: "Celeste Aida" 04'03"
+9. LEONCAVALLO: La Bohème: "Testa adorata" 02'20"
+10. GIORDANO: Andrea Chénier: "Come un bel dì di maggio" 02'57"
+11. LEONCAVALLO: Pagliacci: "Un tal gioco" 02'25"
+12. GIORDANO: Andrea Chénier: "Un dì all'azzurro spazio" 04'49"
+13. PUCCINI: La Bohème: "Che gelida manina" 04'02"
+14. PONCHIELLI: La Gioconda: "Cielo e mar" 04'04"
+
+### COMPACT DISC NO. 2 ARPCD 0471 - T.T. 47'06"
+1. VERDI: Il Trovatore: "Di quella pira" 01'15"
+2. BIZET: Carmen: "La fleur que tu m'avais jetée" 03'40"
+3. MEYERBEER: L'Africana: "O paradiso" 03'13"
+4. FLOTOW: Martha: "M'appari" 03'36"
+5. VERDI: La Traviata: "Libiamo, libiamo" (1) 03'06"
+6. PUCCINI: Madama Butterfly: "Stolta paura" (2) 08'01"
+7. PUCCINI: La Bohème: "O soave fanciulla" (3) 03'37"
+8. STRAUSS: Der Rosenkavalier: "Di rigori armato" 01'49"
+9. PUCCINI: Turandot: "Nessun dorma" 03'07"
+10. GIORDANO: Fedora: "Amor ti vieta" 01'27"
+11. VERDI: Otello: "Dio ti giocondi" (4) 14'07"
+
+Performers:
+Mario Lanza, tenor
+Elaine Malbin, soprano (1,2); Jean Fenn, soprano (3); Licia Albanese, soprano (4);
+RCA Orchestra conducted by Ray Heindorf and Ray Sinatra

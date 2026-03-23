@@ -1,0 +1,104 @@
+# Booklet完整原文
+
+## 封面
+
+```
+BRILLIANT CLASSICS
+Busoni
+Fantasia contrappuntistica
+Seven Elegies
+Sandro Ivo Bartoli
+94223
+```
+
+## 封底
+
+```
+Ferruccio Busoni 1866-1924
+1 Fantasia contrappuntistica 34'16
+Seven Elegies
+2 Nach der Wendung 4'37
+3 All'Italia! In modo napolitano 7'47
+4 Meine Seele bangt und hofft zu dir 7'54
+5 Turandots Frauengemach 4'27
+6 Die Nachtlichen 3'18
+7 Erscheinung 6'00
+8 Berceuse 4'44
+Sandro Ivo Bartoli piano
+Total time: 72'52
+DDD STEMRA LC 09421
+Manufactured and printed in the EU
+© & ℗ 2011 Brilliant Classics
+5 028421 942230 94223
+www.brilliantclassics.com
+```
+
+## 内页文字
+
+### Page 3
+
+**Elegies of a genius**
+
+Empoli, central Italy. On 1 April 1866, a baby boy is born to Ferdinando Busoni, a noted clarinettist, and his half-German wife Anna Weiß, a pianist who often accompanies her husband in recital. It is a turbulent time. The epic campaigns of Garibaldi and the shrewd manoeuvering of Cavour have unified Italy just five years previously. The new country is emerging from centuries of fratricidal tension, civil war, corruption, and scandal; Pope Pius IX still wielded considerable influence and temporal power. For the first time in history, the people of Italy are united and intent in building a bright future for the common good. Spirits are high indeed. In this climate, the Busoni's christen their child with a name full of expectation and promise: Ferruccio Dante Michelangelo Benvenuto! The boy is destined to great things. Raised in a musical family, he quickly develops an interest in the world of sound. At the age of four he can play the piano and violin fluently, aided by the benign and competent care of his mother. At six he begins to compose simple piano pieces and more ambitious chamber music works for clarinet and piano of such quality that his parents are all too happy to perform. His first public performances are met with rapturous success, and by the age of 12 Ferruccio Busoni is a veteran of the concert stages of Europe, an acclaimed and determined wanderkind with an illustrious accolade of supporters: Anton Rubinstein, Goldmark, Brahms, Reinecke, and Liszt are indeed captivated by his amazing talent; Liszt declares he has nothing to teach him, prophetically asserting that such a genius should be left to develop freely.
+
+Despite such promising beginnings, the domineering figure of Ferdinando, a ruthless disciplinarian who forces upon Ferruccio endless hours of daily practice and tries relentlessly to exploit the boy's talent for financial gain, highlights the boy's adolescence. Busoni seeks refuge in literature, philosophy, and languages – he becomes fluent in most European tongues.
+
+Busoni was a man of genius torn between extremes and obsessions. In love with at least the idea of his native Italy, he could not tolerate its provincial mentality and never lived there, preferring instead the more organized and intellectually advanced German society. Financial difficulties forced him to teach, an activity he disliked profoundly. The life of a concert pianist he found unsatisfactory also ('I am tired of concert going', he famously wrote), and only composing seemed to give him the intellectual satisfaction he craved. Endowed with prodigious mental capabilities (his library contained more than 5000 volumes, and he could recall the contents of each at random), Busoni entertained other activities, notably writing. He collaborated with the Italian newspaper L'Indipendente with sagacious portraits of famous pianists he had occasion to hear during his travels to Vladimìr de Pachmann, he wrote that his facial expressions and grimacing were enough to make music accessible to a multitude of deaf people!)
+
+In 1889 he married Gerda Sjostrand, who would become his lifelong companion and trusted soul-mate. Gerda was the only part of Ferruccio's life that was not open to discussion, his anchor and
+
+---
+
+### Page 4-5
+
+supporter. Their correspondence offers a deep insight into Busoni's tribulations and bear testament to Gerda's devotion to her illustrious and problematic husband. During his life, Busoni accepted four important teaching positions, beginning with the Moscow Conservatory at the request of Rubinstein, then Helsingfors, then Boston and, finally, Bologna. He habitually terminated his contracts ahead of time due to conflicts with the administrations, due at least in part to his prolonged absences for his concert activity.
+
+Nonetheless, his influence on piano pedagogy was of lasting significance. In a famous letter to Gerda, dated 20 July 1898, Busoni laid down 12 rules for the practice of the piano, stressing the importance of interpretation. 'The difficulty is seldom in the notes, but in the prescribed dynamic of the music': 'play for your students from the perspective of the performer: you'll be amazed, then, at how difficult it is to play an Étude of Czerny, or Cramer, or even Clementi.' Acclaimed as a grand virtuoso, Busoni wanted to be recognized as a composer, and strived to develop a singular idiom that would, in his vision, glorify the old traditions in a modern language.
+
+In 1906, Busoni published a seminal work, the Entwurf einer neuen Ästhetik der Tonkunst (Sketch of a New Aesthetic of Music). This 70-page pamphlet highlights the limitations of Western music and its inherent fragility, and advances the basis for a new language incorporating avant-garde devices such as bitonality and quarter-tone harmonies. The Elegies of 1907 bring such a language to life. 'My entire personal vision I put down at last and for the first time in the Elegies,' he wrote to his disciple Egon Petri. Not surprisingly, they created a furore after their publication (by Breitkopf & Härtel in 1908) and first public performance (by the composer in Berlin, on 12 March 1909). August Spamuth wrote a venomous review on the Signale für die musikalische Welt: 'No, no, and No again!', but Busoni ploughed on in the conviction that he had found the right path, eventually adding a seventh Elegy, the hypnotic Berceuse (later to become the masterful Berceuse Elégiaque for orchestra in 1909. Breitkopf & Härtel published the collection in 1910 with the subtitle Seven new piano pieces. Aside from the technical mastery that permeates every single page of the Elegies, it is not difficult to imagine why Spamuth (and many beside him, in 1909) were so scandalized. Busoni's treatment of harmony in particular, with his tendency to switch between major and minor mode within the same musical phrase, creates a shimmering play of light and shade that, deployed in its full force, generates a luminous and, at first hearing, disorienting effect.
+
+Nach der wendung ('after the turning point') serves as a prelude to the series. Simultaneous multiple tonalities are already in evidence, as is Busoni's peculiar taste for refined sound distribution throughout the keyboard. The second piece, All'Italia! is subtitled in modo Napolitano. It is a gloomy barcarolle that changes into a spirited tarantella and back, based on material from Busoni's gargantuan Piano Concerto of 1904. This is the most extrovertly virtuosic piece of the collection, displaying some truly magnificent piano writing. Next comes a vast chorale prelude, Meine Seele bangt und hofft zu Dir
+
+(My soul trembles and hopes in Thee), written in the style of Bach's organ chorale preludes that Busoni had so successfully transcribed for piano and complete with a quotation of the Lutheran chorale Allein Gott in der Höb' sei Ehr' (Glory to God in Heaven).
+
+The fourth elegy derives from Busoni's participation in – or concession to – the Orientalism then in vogue. In 1905 he composed an orchestral suite on Carlo Gozzi's Chinese fable Turandot, and Turandots Frauengemach is a concert transcription of the fifth movement of the suite, portraying the Princess' boudoir. The theme, unlikely as it may seem, is Greensleeves, once erroneously attributed to King Henry VIII (but Busoni believed it to be a Chinese melody); here it is treated with pianistic imagination and zesty dissonances, making it the most accessible of the Elegies and, to this day, the most popular. The fifth piece, Die Nächtlichen, also comes from the Turandot Suite (the seventh movement); it is a 'nocturnal waltz' of mephistophelian character, a brief excursion into the ethereal nature of nocturnal mystery and bewilderment. The same fascination with the night and the tenebrae animates the sixth piece, Erscheinung (nocturne). Busoni was particularly fond of this creation, declaring to Egon Petri that 'the structure and proportions of the Erscheinung seem exemplary'; he later reused it in the first act of his opera Die Brautwahl (The Bridal Choice). The Berceuse that closes the series is a hypnosis, trance-like reverie, where the concepts of bitonality are once again exploited to the full, and calling for advanced, truly 'contemporary' use of the sustaining pedal.
+
+Busoni continued to tour extensively, teach reluctantly, and dream of having enough time to compose. In 1909 he wrote to Gerda, 'I must make a great effort to practice the piano, and yet I cannot do without it! It is like a beast that grows new heads as soon as one cuts them off. Composing, on the other hand, is like a road, now beautiful, now difficult, but one which we can travel ever longer distances; we can reach and surpass an ever growing number of places, but its ultimate destination remains unknown and unreachable.' In 1910 he sailed to the US for a particularly gruelling concert tour. While in Boston, he received a visit from Bernhard Ziehn and Wilhelm Middelschulte, both keen students of counterpoint. They suggested the maestro completed the three-subject fugue fragment that Bach had left unfinished in his ethereal masterpieces, Die Kunst der Fuge. Busoni showed immediate interest in the project and set to work. On January 20th he wrote to Gerda: 'I am studying counterpoint again, for which Chicago has stimulated me very much. It is a beautiful weapon which one must be able to handle.' Work proceeded swiftly and enthusiastically, as attested by the correspondence with Gerda; on February 19th he wrote: 'I have altered the plan for the Fantasia contrappuntistica (on Bach's last and greatest work). I shall not begin with a Fantasy, but being into composition by Franck and the 'Hammerklavier' Sonata, with an individual nuance', and, on the 22nd: 'the Fugue is becoming monumental'. Finally, on March the 1st, Busoni announced: 'I had intended to finish this monster fugue in February, and I have succeeded. I shall never undertake
+
+---
+
+### Page 6-7
+
+such a thing again! I write to announce this good news...'. On March 3rd he added: 'the Fugue is my most important piano work [...] its plan is not common, but every note "fits".'
+
+The 'Fugue' was published by Schirmer of New York in 1910 as the Große Fuge. Kontrapunktische Fantasie über Job. Seb. Bach's Last Unfinished Work (Great Contrapuntal Fantasy on Johann Sebastian Bach's Last Unfinished Work), dedicated to 'Wilhelm Middelschulte, Meister des Kontrapunkts'. Busoni, however, had second thoughts. He wrote to Gerda on April 18th, from Denver: 'I had a beautiful idea in the train yesterday. I thought I would arrange the great fugue for orchestra. Transcribe the choral prelude (Meine Seele bangt und hofft zu dir) as an Introduction to it and will recur as a reminiscence just before the Streetta. It would be a great work! But who will give me a second life!' Busoni carried out his plan half-way: he did not produce an orchestral version of the piece, but did enlarge its contours by the addition of the choral prelude. Breitkopf & Härtel of Leipzig published the revised, 'definitive' version in June of the same year. This time, the title was Fantasia contrappuntistica.
+
+The Fantasia was, and remains, one of the most impressive works in the entire piano literature, a monumental undertaking that stretches the possibilities of composer, instrument and performer to the limit. Its breadth and proportions were set on an epic scale and articulated in twelve sections:
+
+1. Chorale prelude; 2. Fuga I; 3. Fuga II; 4. Fuga III; 5. Intermezzo; 6. Variation I; 7. Variation II; 8. Variation III; 9. Cadenza; 10. Fuga IV; 11. Chorale; 12. Stretta. The Fantasia contrappuntistica came to appear in four separate versions, the most significant of which were the second presented here) and the fourth, for two pianos. For the publication of the latter, Busoni, who was also a fine draughtsman, drew a classical building to represent the imposing structure of the work: three tall, symmetrical edifices formed the main body of the architecture (respectively assigned to the first three fugues, the three variations and the fourth fugue), resting on a lower construction that embodied and interlinked them (comprising the other parts of the composition, depicted as transitional passages).
+
+Busoni's mastery of counterpoint is in evidence at every step of the way, displaying his apparent delight in mixing subjects in every fashion imaginable. More still, he increased the texture of each fugue by combining its thematic material with that of its predecessor. The third fugue, based on the B-A-C-H theme (B flat, A, C, and B natural) like the third theme of Bach's fragment, is thus a labyrinth of melodic convergence and harmonic imagination. The three variations that follow offer a brief respite from the stern laws of counterpoint, whilst the Cadenza fluctuates among esoteric harmonies before leading into the fourth and final fugue. This is the apex of the work, a massive six-voice construction where one can hear all the thematic material presented so far: each of the three fugues' subjects, plus course the course the theme of the fourth fugue itself. A restatement of the chorale leads to a final stretta, which closes the work in splendiden grandeur (thus leaving the building in Busoni's drawing). There is little doubt that Busoni intended this as 'pure' music, its destination for the piano being just a by-product of its composer's profession and mastery at the instrument. There is even less doubt, in my mind at least, that the Fantasia contrappuntistica is a masterpiece, a work of mystical allure and visionary genius.
+
+**Plan des Werks**
+A. Analytisch:
+ 1. Choral-Variationen (Einleitung - Choral und Variationen - Ouverturing)
+ 2. Page 1: 3 Fuga II. 8. Variation II. 3. Intermezzo II. Variation II. I. Coda. Stretta
+ B. Architektonische:
+ [diagram of three-section architectural structure]
+
+ 1. Busoni architectural drawing (of the Fantasia Contrappuntistica)
+
+During the First World War, Busoni took refuge in Switzerland, giving there a number of epoch-making recitals (notably, an all-Liszt cycle comprising no fewer than 80 works) and working on his own music. After the end of the hostilities, he returned to Berlin, where he had had left his precious library, resumed his discontinuous and chaotic life: teaching, concertising, composing, travelling, always troubled in self-doubt and creative torment. His disciples revered him like a God, and indeed his influence on piano playing is comparable to that of Liszt himself. He never got the recognition he craved and deserved as a composer, despite the fact that much of his original work is indeed beautiful and ground-breaking, a quality that was to become a same-qua-now during the 20th century. While working on the opera Doktor Faust, Busoni was advised by his physician to cut down on tobacco and champagne. He chose not to heed the good doctor's advice, and died of renal failure in Berlin on 27 July 1924. He was 58 years old.
+
+© Sandro Ivo Bartoli, 2011
+
+Recording: 11-12 March, 2011, Auditorium Enrico Caruso, Gran Teatro Giacomo Puccini, Torre del Lago
+Sound Engineering: Studio Riff Riff Jael di Silvio Pierrsanti.
+Musical Supervision: Stefano Curano.
+Post production: Rosella Clementi.
+Piano: Steinway & Sons.
+Piano tuning: Piero Azzola.
+Publishers: Breitkopf & Härtel
+'Plan des Werkes' drawing used with kind permission of Breitkopf & Härtel, Wiesbaden
+With many thanks to the Puccini Festival Foundation for their help and support
+℗ & © 2011 Brilliant Classics

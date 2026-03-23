@@ -1,0 +1,47 @@
+# Booklet完整原文
+
+## 封面
+Wolfgang Amadeus Mozart
+The Last Concerto, 1791
+
+THE GRAND TOUR presents...
+... live from Amsterdam, Haarlem & Tokyo
+
+Orchestra of the Eighteenth Century
+Eric Hoeprich  Frans Brüggen  Joyce DiDonato
+GLOSSA
+
+## 封底
+Wolfgang Amadeus Mozart (1756-1791)
+
+### Works:
+1. Clarinet Concerto, KV 622
+   - 1 Allegro
+   - 2 Adagio
+   - 3 Rondo Allegro
+2. La Clemenza di Tito, KV 621 (excerpts)
+   - 4 Ouverture
+   - 5 Aria: Parto, ma tu ben mio
+   - 6 Aria: Non più di fiori
+3. Adagio, KV 411
+4. Maurerische Trauermusik, KV 477
+
+### Performers:
+Eric Hoeprich, clarinets & basset horn
+Joyce DiDonato, mezzo-soprano
+Orchestra of the Eighteenth Century
+Frans Brüggen (Conductor)
+
+Clarinet concerto recorded in Haarlem (Doopsgezindekerk), The Netherlands, in February 2001
+Arias from La clemenza di Tito recorded in Amsterdam (Gereformeerde Kerk), The Netherlands, in November 2001
+[More details inside]
+Engineered by Studio van Schuppen
+Produced by Karl Naegle, Sieuwert Verster and Gerd Berg
+© 2003 The Grand Tour / Glossa Music
+
+GLOSSA • SAN LORENZO DE EL ESCORIAL • SPAIN
+GCD 921107
+TT 59:33
+Liner notes in: English, Français, Deutsch, Español
+Barcode: 8 424562 211070
+MADE IN THE EU

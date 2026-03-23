@@ -1,0 +1,88 @@
+# Booklet完整原文
+
+## 封面
+
+```
+SMETANA
+Má Vlast
+(My Country)
+VÁCLAV TALICH
+1954 Recording
+Czech Philharmonic Orchestra
+Václav Talich
+NAXOS
+```
+
+## 封底
+
+```
+8.111237
+ADD
+LC 05537
+Bedřich SMETANA
+(1824-1884)
+Má Vlast
+
+1  Vyšehrad (The High Castle)  14:09
+2  Vltava (The Moldau)  11:56
+3  Šárka  9:50
+4  Z českých luhů a hájů (From Bohemia's Forests and Meadows)  12:27
+5  Tábor  12:43
+6  Blaník  14:18
+
+Czech Philharmonic Orchestra
+Václav Talich
+
+Recorded 10th-12th and 21st June and 2nd-3rd July, 1954
+in the Dvořák Hall of the Rudolfinum, Prague
+
+Playing Time: 75:22
+
+A superb conductor of Smetana's music, including the operas, Talich made three recordings of Má Vlast. This 1954 performance, taped in the fine acoustic of the Dvořák Hall of the Rudolfinum, just yards from the River Vltava, is a magnificent realisation of Smetana's musical intentions. Talich's buoyant rhythm in the opening bars of Vltava, and the passionate phrasing he draws from the vibrant strings and the rustic woodwinds of the Czech Philharmonic, are just some of the outstanding features of this great recording. With its extraordinary technical control, uncanny rhythmic sense and subtle flexibility, Talich's reading builds inexorably, so that the final section made up of the thematically linked Tábor and Blaník comes as a fiery culmination.
+
+Reissue Producer and Audio Restoration Engineer: Mark Obert-Thorn
+Cover photo: Václav Talich, Prague 1939 (Private Collection)
+
+Barcode: 7 47313 32372 2
+NAXOS
+www.naxos.com
+© & © 2007 Naxos International Ltd.
+Made in the EU
+All rights in this sound recording, artwork, texts and translations reserved.
+Unauthorised public performance, broadcasting and copying of this compact disc prohibited.
+```
+
+---
+
+## 内页
+
+### Great Conductors: Václav Talich (1883-1961)
+### Smetana: Má Vlast (My Country)
+### SMETANA: Má Vlast (My Country) – A Cycle of Symphonic Poems
+
+|  |  |  |
+|--|--|--|
+| 1 | Vyšehrad (The High Castle) | 14:09 |
+| 2 | Vltava (The Moldau) | 11:56 |
+| 3 | Šárka | 9:50 |
+| 4 | Z českých luhů a hájů (From Bohemia's Forests and Meadows) | 12:27 |
+| 5 | Tábor | 12:43 |
+| 6 | Blaník | 14:18 |
+
+Recorded 10th-12th and 21st June and 2nd-3rd July, 1954
+in the Dvořák Hall of the Rudolfinum, Prague
+First issued by Supraphon
+
+### Václav Talich biography
+
+Not for nothing is Bedřich Smetana (1824-84) regarded as the father of Czech music. With his grand historical operas on the one hand, and his comic operas on the other hand, he gave the Bohemians and Moravians – downtrodden by the Austrians at the time – a wonderful picture of their past and a delightful portrait of their rural culture. Like many of the nationalist composers who lit up European music when it seemed to be in decline, Smetana had to acquire intense nationalism – just as Sibelius was brought up speaking Swedish rather than Czech. But he took his task with a convert's zeal, and whereas his younger colleague Antonín Dvořák drew on a pan-Slavic canvas, Smetana tried to project a distinctively Czech profile. In his various symphonic poems, he carried forward the legacy of Liszt, who was already a potent influence on his piano music. By the time he came to write his great cycle of six symphonic poems Má Vlast (My Country) in the 1870s, Smetana had absorbed all the necessary skills and could concentrate on his Czech themes without compromising in any way, even though he had become totally deaf. Five of the six pieces explore "the spirit of place" – we begin with the harps of the seers as they sing of the history of Vyšehrad; we follow the Vltava down its course; we hear the story of the warrior Bohemia; Šárka; we gaze on the fields and woods of Bohemia; then, to the melody of the Hussite chorale 'Ye warriors of God', we move to Tábor; and finally we go with the defeated Hussites to Mount Blaník, where they sleep until they may be called to their nation. It soon became traditional for Má Vlast and Smetana's historical pageant Lábu was performed at each Prague Spring festival. Every Czech conductor has had to measure his prowess against this music, and none has been greater than Václav Talich. For almost forty years his name was synonymous with the Czech Philharmonic Orchestra; their symbiotic relationship had to survive war and political interference but gave rise to some of the finest recordings ever made.
+
+Born in Kroměříž, Moravia, on 28th May 1883, Talich had the classic Czech musical background: his father was a 'cantor' who started him on the violin at five. Aged eight, he heard Dvořák perform the Dvořák Trio with Ferdinand Lachner and Hanuš Wihan. His violin tutors at the Prague Conservatory (1897-1903) were the best, Jan Mařík and Otakar Ševčík. He met his hero Dvořák who, even thirty, advised Talich to smoke cigarettes rather than cigars to conserve his money. In Berlin he played under Arthur Nikisch and was inspired to conduct but suffered the first of many health crises. He worked in Odessa, Tbilisi, Prague, Ljubljana and Pilsen as both orchestral and opera conductor, taking a year off in 1910 to study in Leipzig with Reger, Simandl and Nikisch as well as Milan. He first conducted the Czech Philharmonic in 1917. Wherever he was, he usually organized a string quartet – he said he learnt more from rehearsing as guest viola with the legendary Bohemian Quartet than from any other activity. He became friendly with the composer Josef Suk, and was preparing the CPO for the premiere of Suk's symphonic poem *Ripening* in 1918 when the manager dared to say that the Czechs had now achieved their dream of a republic, named Czechoslovakia. "That's all very well," Talich typically replied, "but we have to rehearse." By 1919 he was chief conductor and conductor of the orchestra, founded in 1896 by Dvořák. Noted was not in the best of order. Talich built it up with endless rehearsing and by 1922 was confident enough to take the CPO on a tour of Italy. He loved Britain, which he first visited in 1923 as a guest conductor; he conducted the Scottish Orchestra as a guest conductor. He gave the London premiere of Holst's *Egdon Heath* in 1928. He also premiered the Koněvforeningen Orchestra in Stockholm (1927-34), in fact he gave 254 concerts in Sweden, leading to a breakdown in his health. He recovered and from 1935 was in charge of the National Theatre in Prague, in addition to his post with the CPO, but began to delegate some of the touring work with the orchestra to the younger Rafael Kubelík and George Szell.
+
+When Czechoslovakia was occupied by the Germans. Talich was placed in an impossible position. Although he had given up the CPO in 1941, Josef Goebbels made him 'an offer he couldn't refuse', ordering him to tour Germany with the orchestra. Talich insisted on taking Má Vlast, banned by the German authorities in Czechoslovakia, and the visit was so successful that this music, almost sacred to Czechs, was again permitted in Prague. Even so, in 1945 Talich was accused of collaboration. He walked thirty kilometres in twelve hours from his home in Beroun to Prague, in the hope of conducting Libuše to mark the end of the war, only to be barred from his own opera house. His chief accuser, the critic Zdeněk Nejedlý, hated Talich because he felt that the Dvořák faction in Czech music had unfairly supplanted the Smetana faction. Although Talich was a magnificent conductor of Smetana's music, including the operas, he was identified with the "Dvořák wing" because of his closeness to Suk and Vítězslav Novák. He was absolved of all charges and returned to the National Theatre, also making his last foreign trip, to Stockholm, in 1946; but he was still prevented from working with the CPO, so he formed his own Czech Chamber Orchestra. When the Communists took over came in 1948. He was accused yet again and found that his enemy Nejedlý had even more political power than before. Dismissed from the National Theatre, he had to disband his chamber orchestra and, like Nedbal in the 1920s, was exiled to Bratislava, where he built up the Slovak Philharmonic (1949-52). Meanwhile the Communist government in Prague, though it made it difficult for him with the CPO in public, allowed him to record with the orchestra, as he was the only conductor in the country that had the international reputation. Kubelík had fled in 1948. By the mid-1950s the pressure was off Talich but he was a broken man. He last conducted the CPO in concert in Becon on 16th March 1961.
+
+Talich has sometimes been thoughtlessly been compared with Wilhelm Furtwängler but he was closer to Arturo Toscanini in his technical control, uncanny rhythmic sense, subtle flexibility, willingness to rethink interpretations and humility towards the music – in retirement he was still studying Dvořák's 'New World' Symphony, saying: "I would conduct it very plainly now, without all the Romantic silt." The listener will never feel with Talich that a giant ego is being placed between him and the composer. Moreover, like Toscanini, Talich had the inner power to thrust a musical point home. Fortunately he left a substantial discography, even though there are gaps – virtually no Beethoven, no Haydn, no Schubert, no Martinů, almost no opera. Talich made his debut recording for HMV at the Trades Union House in Prague in 1929, a complete set of *Má Vlast* with the CPO. That version has its interest but the sound is a little dim and Talich appears to indulge in some retouching when it was felt that certain instruments would not sound on a recording. In July 1941 he and the orchestra reconvened at the National Theatre for a second HMV recording: Talich reduced his overall timing from 79 minutes to 73 and gave a defiant reading which seemed like a rallying cry against the German Occupation. Almost exactly thirteen years later, conductor and players made a last attempt, in the fine acoustic of the Dvořák Hall of the Rudolfinum, just yards from the Vltava. Although the interpretation had not greatly changed since 1941, this performance proved to be not only much improved in sound quality but a magnificent realization of Smetana's musical intentions. It is difficult to know what to praise first. Talich's buoyant rhythm – listen to the opening bars of Vltava – or the passionate phrasing he draws from the vibrant Czech Philharmonic strings. The rustic CPO woodwinds are also in their element in these pieces and the brass instruments have plenty of occasions to show off. The great merit of Talich's reading is that it builds inexorably, so that the thematically linked Tabor and Blanik comes as a fiery culmination. We should also admire the superb work of the Supraphon recording team, who in their mono recordings of the 1950s managed to capture such an atmospheric hall ambience that one could almost be listening to stereo.
+
+Tully Potter
+
+8.111237

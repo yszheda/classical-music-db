@@ -1,0 +1,69 @@
+# Booklet完整原文
+
+## 封面
+Deutsche Grammophon
+RESONANCE
+STEREO 429 161-2
+
+Wolfgang Amadeus Mozart
+GROSSE MESSE C-MOLL
+Maria Stader · Hertha Töpper
+Ernst Haefliger · Ivan Sardi
+FERENC FRICSAY
+
+## 封底
+WOLFGANG AMADEUS MOZART
+(1756-1791)
+
+Große Messe c-moll KV 427 (417a)
+Great Mass in C minor, K. 427 (417a)
+Grande Messe en ut mineur, K. 427 (417a)
+
+### Tracklist:
+1. I. Kyrie (Andante moderato) [7'20]
+2. II. Gloria: Gloria in excelsis Deo (Allegro vivace) [2'27]
+3. Gloria: Laudamus te (Allegro aperto) [4'52]
+4. Gloria: Gratias (Adagio) [1'36]
+5. Gloria: Domine (Allegro moderato) [3'05]
+6. Gloria: Qui tollis peccata mundi (Largo) [6'15]
+7. Gloria: Quoniam tu solus Sanctus (Allegro) [4'08]
+8. Gloria: Jesu Christe (Adagio) [0'45]
+9. Gloria: Cum sancto spiritu [3'53]
+10. III. Credo: Credo in unum Deum (Allegro maestoso) [3'34]
+11. Credo: Et incarnatus est (Andante) [7'59]
+12. IV. Sanctus (Largo) [3'53]
+13. V. Benedictus (Allegro comodo) [6'40]
+
+### Soloists:
+Maria Stader, Sopran (soprano) I
+Hertha Töpper, Sopran II
+Ernst Haefliger, Tenor
+Ivan Sardi, Bass (basse)
+
+Chor der St. Hedwigs-Kathedrale
+(Einstudierung / Chorus master / Chef des chœurs: Karl Forster)
+
+### Maurerische Trauermusik KV 477
+Masonic Funeral Music, K. 477
+Musique funèbre maçonnique, K. 477
+14. Adagio [6'14]
+
+Radio-Symphonie-Orchester Berlin
+FERENC FRICSAY
+
+ADD · ℗ 1960 Polydor International GmbH, Hamburg · [63'46]
+Cover Photo: Matthew Stevens
+Typo Design: Werner Koberstein, Hamburg
+Art Direction: Peter Schuppe
+
+Barcode: 0 28942 91612 8
+STEREO
+429 161-2 GR
+Digitally remastered
+Transcription numérique
+Printed in West Germany by / Imprimé en RFA par Neef, Wittingen
+Made in West Germany
+Fabriqué en RFA
+LC 0173
+Deutsche Grammophon
+RESONANCE

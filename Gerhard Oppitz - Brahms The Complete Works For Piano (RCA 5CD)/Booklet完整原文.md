@@ -1,0 +1,69 @@
+# Booklet完整原文
+
+## 封面
+```
+RCA RED SEAL
+
+GERHARD
+OPPITZ
+JOHANNES BRAHMS
+Das Gesamtwerk für Klavier - Solo -
+The Complete Works for Piano
+Integrale des Œuvres pour Piano
+Tutte le Composizioni per Pianoforte
+```
+
+## 封底
+```
+GERHARD OPPITZ
+JOHANNES BRAHMS
+Das Gesamtwerk für Klavier - Solo -
+Integrale des Œuvres pour Piano
+Tutte le Composizioni per Pianoforte
+The Complete Works for Piano
+
+CD I -------------------------- 74:24
+CD II ------------------------- 72:45
+CD III ------------------------ 73:02
+CD IV ------------------------- 75:51
+CD V -------------------------- 75:32
+
+Gerhard Oppitz, Klavier
+(Bösendorfer - Imperial)
+Bösendorfer
+
+Aufnahme/Recording/Enregistrement/Registrazione:
+Reitstadel, Neumarkt März 22-25, Juli 10-14, Juli
+31-August 3, 1989 Aufnahmeleitung/
+Recording Supervision/Superviseur artistique/
+Supervisione della Registrazione: Heinz Wildhagen
+
+株式会社 BMGファンハウス http://www.bmgjapan.com
+定価 ¥6,000 (税込価格 ¥6,300) 003-12-24まで
+03·6·25 (91·2·21) ①
+
+MANUFACTURED BY BMG FUNHOUSE, INC., TOKYO, JAPAN
+ALL RIGHTS RESERVED. TM (c) BMG REGISTERED.
+© 1990 BMG. STEREO / 0888
+
+このCDを権利者の許諾なく賃貸業に使用すること、個人的に楽しむ
+などの場合を除き複製・改変すること、また、ネットワーク等を通じて
+公衆に送信する行為を法律で固く禁じられています。これらの著作権法上、禁
+じられている行為を 違反した場合には刑事上、または民事上の責任を
+負わされることがあります。
+```
+
+## 内页展开
+```
+BVCC-38256~60
+
+RCA RED SEAL
+
+GERHARD
+OPPITZ
+JOHANNES BRAHMS
+Das Gesamtwerk für Klavier - Solo -
+The Complete Works for Piano
+Integrale des Œuvres pour Piano
+Tutte le Composizioni per Pianoforte
+```

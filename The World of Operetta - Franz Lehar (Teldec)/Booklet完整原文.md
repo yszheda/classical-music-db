@@ -1,0 +1,344 @@
+# Booklet完整原文
+
+## 封面
+
+```
+TELEFUNKEN
+LEGACY
+THE WORLD OF OPERETTA
+FRANZ LEHÁR
+JOSEPH SCHMIDT
+PETER ANDERS
+ELISABETH SCHWARZKOPF
+AND OTHERS
+```
+(120 2.-)
+
+## 封底/曲目列表
+
+```
+THE WORLD OF OPERETTA
+FRANZ LEHÁR
+
+1.  Das Land des Lächelns (The Land of Smiles): Overture  7'44"
+2.  Das Land des Lächelns
+    Von Apfelblüten einen Kranz
+    Joseph Schmidt, tenor  3'39"
+3.  Das Land des Lächelns
+    Wer hat die Liebe uns in Herz gesenkt
+    Irene Eisinger, soprano - Joseph Schmidt, tenor  4'29"
+4.  Der Zarewitsch: Wolgalied
+    Marcel Wittrisch, tenor  4'00"
+5.  Rendezvous bei Lehár - Potpourri
+    Aulikki Rautawaara, soprano - Peter Anders, tenor  9'03"
+6.  Die lustige Witwe (The Merry Widow):
+    Highlights
+    Anita Gura, soprano - Peter Anders, tenor  8'53"
+7.  Eva: Ara der Eva - Wär' es auch nichts als
+    ein Augenblick
+    Aulikki Rautawaara, soprano  3'40"
+8.  Der Rastelbinde: Wenn zwei sich lieben
+    Aulikki Rautawaara, soprano - Peter Anders, tenor  4'19'
+9.  Frasquita: Hab' ein blaues Himmelbett
+    Otto Stadelmaier, tenor  3'35'
+10. Giuditta: Du bist meine Sonne
+    Anton Dermota, tenor  3'12"
+11. Das Land des Lächelns
+    Dein ist mein ganzes Herz
+    Anton Dermota, tenor  3'05"
+12. Paganini: Highlights
+    Elisabeth Schwarzkopf, soprano - Rupert Glawitsch, tenor  9'07"
+13. Das Land des Lächelns
+    Highlights
+    Elisabeth Schwarzkopf, soprano - Rupert Glawitsch, tenor  8'43"
+
+TOTAL TIME: 75'01"
+
+RECORDED 1929-1940 WITH VARIOUS ORCHESTRAS
+AND CONDUCTORS - FULL DETAILS INSIDE
+
+LC 6019  3984-28406-2
+Barcode: 6 39842 84062 0
+
+LANDMARK RECORDINGS RESTORED FROM THE ORIGINAL SOURCES TO THE HIGHEST TECHNICAL
+STANDARDS. STATE OF THE ART TECHNOLOGY HAS BEEN EMPLOYED TO PRESERVE THE FULL
+FREQUENCY RESPONSE OF THE ORIGINAL RECORDINGS.
+This compilation ℗ & © 1999 TELDEC CLASSICS INTERNATIONAL GMBH, Hamburg, Germany
+A Warner Music Group Company.  Made in Germany by WARNER MUSIC MANUFACTURING EUROPE
+ADO Historical mono recordings
+www.teldec.com
+
+ALL RIGHTS OF THE PRODUCER AND OF THE OWNER OF THE WORKS REPRODUCED RESERVED.
+UNAUTHORIZED COPYING, HIRING, LENDING, PUBLIC PERFORMANCE AND BROADCASTING OF THIS RECORD PROHIBITED.
+```
+
+---
+
+## 内页目录
+
+**THE WORLD OF OPERETTA**
+**FRANZ LEHÁR**
+
+**1** *Das Land des Lächelns (The Land of Smiles)*
+- Overture
+- Hansgeorg Otto/Orchester des Deutschen Opernhauses, Berlin
+- Matrix Nos. 021954/021955
+- Recorded April 1, 1937  7'44"
+
+**2** *Das Land des Lächelns*
+- Von Apfelblüten einen Kranz
+- Joseph Schmidt, tenor
+- Selmar Meyrowitz/Orchester der Staatsoper, Berlin
+- Matrix No. 050354
+- Recorded October 24, 1929  3'39"
+
+**3** *Das Land des Lächelns*
+- Wer hat die Liebe uns in Herz gesenkt
+- Irene Eisinger, soprano - Joseph Schmidt, tenor
+- Selmar Meyrowitz/Orchester der Staatsoper, Berlin
+- Matrix No. 050353
+- Recorded October 22, 1929  4'29"
+
+**4** *Der Zarewitsch*
+- Wolgalied
+- Marcel Wittrisch, tenor
+- Hans Band /Berliner Philharmoniker
+- Matrix No. 019632
+- Recorded March 5, 1934  4'00"
+
+**5** *Rendezvous bei Lehár*
+- Potpourri
+- Aulikki Rautawaara, soprano - Peter Anders, tenor
+- Hans Schmidt-Isserstedt/Berliner Philharmoniker
+- Matrix Nos. 020419/020420
+- Recorded January 15, 1935  9'03"
+
+**6** *Die lustige Witwe (The Merry Widow)*
+- Highlights
+- Anita Gura, soprano - Peter Anders, tenor
+- Hans Schmidt-Isserstedt/Chor des Deutschen Opernhauses/Berliner Philharmoniker
+- Matrix Nos. 020885/028886
+- Recorded August 21, 1935  8'53"
+
+**7** *Eva*
+- Aria der Eva - Wär' es auch nichts als ein Augenblick
+- Aulikki Rautawaara, soprano
+- Peter Kreuder/Orchester des Deutschen Opernhauses, Berlin
+- Matrix No. 022956
+- Recorded March 17, 1938  3'40"
+
+**8** *Der Rastelbinder*
+- Wenn zwei sich lieben
+- Aulikki Rautawaara, soprano - Peter Anders, tenor
+- Hans Schmidt-Isserstedt/Orchester des Deutschen Opernhauses, Berlin
+- Matrix No. 023093
+- Recorded April 30, 1938  4'19"
+
+**9** *Frasquita*
+- Hab' ein blaues Himmelbett
+- Otto Stadelmaier, tenor
+- Walter Lutze/Orchester des Deutschen Opernhauses, Berlin
+- Matrix No. 023507
+- Recorded October 6, 1938  3'35"
+
+**10** *Giuditta*
+- Du bist meine Sonne
+- Anton Dermota, tenor
+- Walter Lutze/Orchester des Deutschen Opernhauses, Berlin
+- Matrix No. 024189
+- Recorded April 22, 1939  3'12"
+
+**11** *Das Land des Lächelns*
+- Dein ist mein ganzes Herz
+- Anton Dermota, tenor
+- Walter Lutze/Orchester des Deutschen Opernhauses, Berlin
+- Matrix No. 024190
+- Recorded July 4, 1939  3'05"
+
+**12** *Paganini*
+- Highlights
+- Elisabeth Schwarzkopf, soprano - Rupert Glawitsch, tenor
+- Hansgeorg Otto/Orchester des Deutschen Opernhauses, Berlin
+- Matrix Nos. 024618/024619
+- Recorded September 2, 1939  9'07"
+
+**13** *Das Land des Lächelns*
+- Highlights
+- Elisabeth Schwarzkopf, soprano - Rupert Glawitsch, tenor
+- Walter Lutze/Orchester des Deutschen Opernhauses, Berlin
+- Matrix Nos. 025121/025122
+- Recorded August 17, 1940  8'43"
+
+Total time: **75'01"**
+
+---
+
+## 英文简介
+
+# THE WORLD OF OPERETTA
+## FRANZ LEHÁR
+
+The evening of December 30, 1905 at the Theater an der Wien, the historic theatre in the centre of Vienna, saw the birth of twentieth-century musical theatre. That night Franz Lehár's *Die lustige Witwe* (*The Merry Widow*), had its world première and not only made Lehár famous but launched a new style of light opera that was to dominate the world's stages. Lehár was 35 years old, and still unknown outside Austria. He had had a varied career, starting as a professional bandmaster in the Austrian army, playing in orchestras and eventually gaining the post of chief conductor in the opera house at Trieste. Four of his operettas had been produced in Vienna, one of which, *Der Rastelbinder* (1902) had caught on. It remained a favourite for many years - Lehár conducted the 500th performance in 1920 - but it had completely failed to interest a public outside Austria.
+
+The *Merry Widow's* phenomenal success - by 1910 it had been applauded in London, Paris, Berlin, Hamburg, Budapest, Milan, Moscow and as far afield as Shanghai and Melbourne- is quite easy to explain. Every number in the score is a potential hit tune, the story of two pairs of star-crossed lovers defying convention has a universal appeal, and Lehár and his librettists, Victor Léon and Leo Stein, dared to have an ending that was less than the conventional happy-ever-after.
+
+*Eva* (1911), although it has never enjoyed the fame of some of Lehár's other works, produced one of his greatest waltz tunes, "Wär' es auch nichts als ein Traum von Glück". Set in a Parisian department store, a very distant parody perhaps of Zola's *Au bonheur des Dames*, its story is cynical in the extreme, with one of the heroines using a tale of a brutal husband to entice an elderly customer to pay for her holiday. The whole subject proved too shocking for English-speaking audiences, and it lasted only 24 nights on New York's Broadway, and was never seen in London.
+
+After the First World War Lehár and his librettists started to experiment with more exotic settings. First came *Frasquita* (1922). At the première in May 1922, the tenor role of Armand Mirbeau was sung by Hubert Marischka. During the run of 195 performances, Marischka was replaced by Richard Tauber, who created such a sensation that a new partnership with Lehár was born, one which was to last until the end of both their lives. Every Lehár operetta had to have its "Tauberlied" and in regular succession Tauber starred in *Paganini* (1925), *Der Zarewitsch* (1927), *Friederike* (1928), *Das Land des Lächelns* (1929), *Schön ist die Welt* (1930) and finally *Giuditta*, the nearest Lehár came to writing a mature opera and which was given its première at the Vienna State Opera in 1934.
+
+*Paganini* concerned an amorous adventure between the famous Italian violinist and the sister of Napoleon Bonaparte, Maria Anna Elisa, Princess of Lucca and Piombino. In this triangular love affair, it is music that comes between the lovers, Paganini eventually giving up the Princess in favour of his violin. *Der Zarewitsch* is a variation on an old theme, when the heir to the Russian throne is found to have no interest in women, so it is arranged to have a girl-dressed-as-a-boy set up to seduce him. Understandably, this never caught on in America or England, although the French took it up.
+
+*Friederike* tells the story of the poet Goethe's early romance with a charming country girl, the librettists Ludwig Herzer and Fritz Löhner-Beda weaving in some of Goethe's verses into their text. Of all the Tauber/Lehár operettas, the greatest success was *Das Land des Lächelns*, a sad story of a Chinese prince, who woos the daughter of a Viennese diplomat, and takes her back to China, where they find that East cannot meet West in a happy union. "Dein ist mein ganzes Herz" ("You are my heart's delight"), became Tauber's signature tune.
+
+*Schön ist der Welt* was a re-working of *Endlich allein*, and was unique in operetta terms in having the romantic pair alone on stage for the entire second act, when they are stranded in the mountains after a convenient avalanche.
+
+*Giuditta*, Lehár's last work for stage, concerns the affair between an army officer and an exotic Mediterranean girl, who becomes a nightclub singer in a North African cabaret. Despite Tauber and Jarmila Novotná in the original Viennese cast, it did not really become a favourite with the public, but it was a fitting end to Lehár's career, in which at the age of 64 he proved that he could still adapt to changes in fashion and mood.
+
+All the singers in these Telefunken recordings made in the 1930s grew up with Lehár's music and they bring a natural and affectionate style to it.
+
+Joseph Schmidt (1904-42) became enormously popular as a voice on records and radio. His stage career was limited to the concert platform, because of his tiny stature (he was less than five feet tall). His recordings have remained immensely admired, and in today's more free-and-easy theatre he would have probably become a stage star without difficulty. Irene Eisinger (1903-94) began her career in Basel and graduated to the Kroll Opera in Berlin, where she was engaged by Otto Klemperer. Throughout her career she alternated roles in opera with operetta. She created the part of Luise in Weill's *Die Bürgschaft* in Berlin in 1932, and sang Despina in Mozart's *Cosi fan tutte* at Glyndebourne. She made a film of Stolz's *Zwei Herzen im Dreivierteltakt*, in 1931, sang in the 1930s London revue *Follow the Sun*, and in a 1942 revival of *Lilac Time*. She settled in England, and her last stage appearances were at the 1949 Edinburgh Festival.
+
+Marcel Wittrisch (1901-55) began like Tauber as an opera singer and graduated to operetta and films. He sang the title role in Wagner's *Lohengrin* at Bayreuth in 1937; and in Berlin, where he was a member of the company at the Staatsoper from 1929 until 1943, he sang many Italian roles. He continued to sing, mainly in concert and operetta, until the end of his life.
+
+Peter Anders (1908-54) also moved effortlessly between operetta and opera. His first success was *Paris* in Offenbach's *La belle Hélène* in Berlin in 1931, in the famous Max Reinhardt production. He took part in the première of Richard Strauss's *Friedenstag* in Munich in 1938, later adding to his repertoire the Strauss roles of Bacchus in *Ariadne auf Naxos* and Leukippos in *Daphne*.
+
+Aulikki Rautawaara (1906-90) was like Eisinger a member of the company at early Glyndebourne festivals, where she sang Countess Almaviva in Mozart's *Le nozze di Figaro* and Pamina in *Die Zauberflöte*. A member of one of the most distinguished Finnish musical families, her nephew is the composer Einojuhani Rautavaara.
+
+Anton Dermota (1910-1989) was the foremost tenor of the Vienna and Salzburg ensembles in the 1940s and 1950s. He had a very long career, continuing to sing until he was 70. Born in Kropa, Slovenia, he later took Austrian nationality. Dermota sang Jacquino in Beethoven's *Fidelio* at the opening of the rebuilt Vienna State Opera in 1955. He had a wide-ranging repertoire, including Lensky in Tchaikovsky's *Eugene Onegin*, Des Grieux in Massenet's *Manon*, and the title role in Pfitzner's *Palestrina*. He was also an accomplished Lieder singer.
+
+Elisabeth Schwarzkopf (b.1915) was just on the threshold of her career when she recorded these selections from Lehár's operettas in 1939 and 1940. In *Elisabeth Schwarzkopf: A Career on Record*, by Alan Sanders and J. B. Steane (Duckworth, London: 1995), Dame Elisabeth says that she has only faint recollections of these early sessions, but remembers being "totally nervous, totally awestruck", and that the tenor Rupert Glawitsch was helpful and supportive. Glawitsch (1907-71) had a long career, appearing on stage in operetta in Hamburg, Vienna, Graz and other centres. He became a favourite recording artist, and continued to sing on radio and in concert until the 1960s. Early in her stage career in Vienna Schwarzkopf sang in several light operas and operettas, but although she made famous recordings of Johann Strauss and Lehár in the 1950s, she never appeared on stage in *Fledermaus* or *Die lustige Witwe* after her international career had taken off. "To perform operetta is much more difficult than opera", she suggested. "The rules are not so strict. [...] You have seemingly a lot of freedom, but you have to know which freedom to take and which not".
+
+Franz Lehár was the last of the great Viennese operetta composers, and he brought the waltz to its final great days. In 1948, in the last months of his life, Lehár talked to his old colleague Oscar Straus, and they agreed on the basic principle of their art: "It must always be an excuse for producing beautiful music: music right from the heart; and it must give singers the chance for full vocal play, audiences for unalloyed pleasure".
+
+&copy; Patrick O'Connor, 1999
+
+Patrick O'Connor is a contributor to *Gramophone* and writes for *The Telegraph*. Mr O'Connor was a consulting editor to *The New Grove Dictionary of Opera*.
+
+### 图片说明
+- Franz Lehár, 1930 (Teldec Picture Archives)
+- Peter Anders at Telefunken recording session, 1934 (courtesy Hansfried Sieben)
+- Joseph Schmidt, 1930 (courtesy Hansfried Sieben)
+- Elisabeth Schwarzkopf in the late 1930s (as published in Elisabeth Schwarzkopf, *Libre Antheme Feyard*, 1983)
+- Peter Anders, Hans Schmidt-Isserstedt, Aulikki Rautawaara and Telefunken producer Herbert Grenzebach, Berlin 1938 (courtesy Hansfried Sieben)
+- Franz Lehár, 1906 (Teldec Picture Archives)
+- Marcel Wittrisch at Telefunken recording session, 1933 (courtesy Hansfried Sieben)
+- Franz Lehár, 1940 (Teldec Picture Archives)
+
+---
+
+## 德文简介
+
+# DIE WELT DER OPERETTA
+## FRANZ LEHÁR
+
+Am Abend des 30. Dezember 1905 wurde im Theater an der Wien, dem traditionsreichen Haus im Herzen von Wien, das Musiktheater des 20. Jahrhunderts aus der Taufe gehoben, als dort *Die lustige Witwe* von Franz Lehár ihre Welturaufführung erlebte. Über Nacht wurde der Komponist zur Berühmtheit, und die von ihm geschaffene neue Form der Operette sollte schon bald die Bühnen der Welt erobern. Lehár war zu diesem Zeitpunkt 35 Jahre alt und außerhalb seiner österreichischen Heimat noch weitgehend unbekannt. In seiner recht wechselvollen Karriere hatte er bereits als Militärkapellmeister gearbeitet und in verschiedenen Orchestern gespielt, bevor er Chef-dirigent am Opernhaus von Triest wurde. In Wien hatte er bereits vier Operetten zur Aufführung gebracht, von denen sich allerdings nur *Der Rastelbinder* (1902), hatte einen gewissen Erfolg. Das Werk konnte 1920 dirigierte Lehár die 500. Vorstellung -, fand jedoch außerhalb Österreichs keinerlei Anklang beim Publikum.
+
+Bis 1910 war die *Lustige Witwe* auf ihrem Siegeszug um die Welt bereits nach London, Paris, Berlin, Hamburg, Budapest, Mailand und Moskau gelangt und hatte sogar im fernen Shanghai und Melbourne Beifallsstürme geerntet. Im Grunde läßt sich dieser grandiose Erfolg ganz einfach erklären: Jede Nummer der Partitur ist ein potentieller Ohrwurm, die Geschichte eines Liebespaares, das sich gegen Widrigkeiten des Schicksals und gesellschaftliche Konventionen zu behaupten hat, versteht man überall auf der Welt, und darüber hinaus hatten Lehár und seine Librettisten Victor Léon und Leo Stein, oserten sogar eine Konklusion die nicht ganz so der "bonheur à tout jamais" conventionnel.
+
+*Eva* (1911), die n'a jamais joui de la renommée de certaines des autres œuvres de Lehár, a donné le jour à l'un de ses plus grands airs de valse, "Wär' es auch nichts als ein Traum von Glück". L'histoire, qui se passe dans un grand magasin parisien, et qui est peut-être une parodie lointaine d'*Au bonheur des dames* de Zola, est on ne peut plus cynique, avec l'une des héroïnes qui prétexte la brutalité de son mari pour inciter un client d'un certain âge à lui payer des vacances. Le sujet se révéla trop choquant pour le public anglophone : l'œuvre ne tint l'affiche que pendant vingt-quatre soirs à Broadway, et ne fut jamais donnée à Londres.
+
+Au lendemain de la Première Guerre mondiale, Lehár et ses librettistes commencèrent à s'essayer à des thèmes plus exotiques. Ce fut d'abord *Frasquita* (1922). Lors de la première, en mai 1922, le rôle de ténor d'Armand Mirbeau fut chanté par Hubert Marischka. Au cours de la série de cent quatre-vingt-quinze représentations, Marischka fut remplacé par Richard Tauber, lequel fit sensation au point qu'un nouveau partenariat avec Lehár était né, qui devait durer jusqu'à la fin de leur vie à tous deux. Chaque opérette de Lehár devait désormais avoir son "Tauberlied", et Tauber fut tour à tour la vedette de *Paganini* (1925), *Der Zarewitsch* (1927), *Friederike* (1928), *Das Land des Lächelns* (1929), *Schön ist die Welt* (1930) et enfin *Giuditta*, l'œuvre de la maturité de Lehár la plus proche d'un opéra véritable, dont la création eut lieu à l'Opéra d'État de Vienne en 1934.
+
+*Paganini* avait pour sujet une aventure amoureuse entre le célèbre violoniste italien et la sœur de Napoléon Bonaparte, Maria Anna Elisa, princesse de Lucques et de Piombino. Dans cette histoire d'amour à trois, c'est la musique qui s'interpose entre les amants, puisque Paganini finit par renoncer à la princesse au profit de son violon. *Der Zarewitsch* (Le Tsarévitch) est une variation sur un vieux thème: l'héritier du trône de Russie ne s'intéresse pas aux femmes, et on s'arrange donc pour le faire séduire par une jeune fille déguisée en garçon. On comprend que l'œuvre ne se soit jamais imposée en Amérique ou en Angleterre, bien que les Français lui aient fait bon accueil.
+
+*Friederike* raconte l'histoire d'amour du jeune Goethe avec une charmante paysanne, et les librettistes Ludwig Herzer et Fritz Löhner-Beda auch einige Originalverse des Dichters in ihren Text einfügten. Den größten Erfolg unter allen Operetten des Gespanns Tauber/Lehár hatte jedoch ohne Frage *Das Land des Lächelns*, jene traurige Geschichte eines chinesischen Prinzen, der sich in die Tochter eines Wiener Diplomaten verliebt, sie heiratet und mit zurück nach China nimmt, wo die beiden jedoch einsehen müssen, daß die Unterschiede zwischen Ost und West unüberbrückbar bleiben. "Dein ist mein ganzes Herz" wurde in der Folge Taubers Erkennungsmelodie. Bei *Schön ist die Welt* handelte es sich um die Überarbeitung von *Endlich allein*, und daß die beiden Liebenden (die nach einem Lawinenabgang passenderweise in den Bergen festsitzen) den gesamten Zweiten Akt hindurch allein auf der Bühne stehen, war ein Novum für die damalige Operette.
+
+Lehárs letztes Bühnenwerk *Giuditta* erzählt die Liebesgeschichte eines Offiziers und einer exotischen Südländerin, die zwischenzeitlich als Sängerin in einem Nachtlokal in Nordafrika auftritt. Selbst Tauber und Jarmila Novotná konnten dem Stück in der Wiener Uraufführungsproduktion nicht zu einem wirklichen Publikumserfolg verhelfen, doch es war ein würdiger Abschluß für das Schaffen von Franz Lehár, der damit bewiesen hatte, daß er auch mit 64 Jahren noch neue Strömungen und Moden aufgreifen konnte.
+
+Alle Sänger der vorliegenden Telefunken-Aufnahmen aus den 30er Jahren sind mit Lehárs Musik großgeworden, und ihr Gesangsstil ist dabei natürlich und zugleich gefühlvoll. Joseph Schmidt (1904-1942) war ein erfolgreicher Rundfunk- und Schallplattensänger, dessen geringe Körpergröße (er war nur etwa 1,50 m groß) eine Bühnenlaufbahn unmöglich machte. Seine Aufnahmen werden nach wie vor hoch geschätzt, und in unserer heutigen, toleranteren Theaterwelt wäre er wahrscheinlich ohne Mühe ein Star geworden. Irene Eisinger (1903-1994) gab ihr Debüt in Basel, bevor Otto Klemperer sie nach Berlin an die Kroll-Oper holte. Während ihrer gesamten Laufbahn sang sie neben ihrer Opernarbeit immer wieder auch Operettenpartien. Bei der Uraufführung von Weills *Die Bürgschaft* übernahm sie 1932 in Berlin die Rolle der Luise, und in Glyndebourne sang sie die Despina in Mozarts *Cosi fan tutte*. 1931 stand sie für eine Verfilmung der Stolz-Operette *Zwei Herzen im Dreivierteltakt* vor der Kamera, und in den 30er Jahren trat sie in London in der Revue *Follow the Sun* auf sowie 1942 bei der Wiederaufnahme von *Lilac Time*. Sie ließ sich in England nieder und verabschiedete sich 1949 beim Edinburgh Festival von ihrem Publikum.
+
+Marcel Wittrisch (1901-1955) war wie Tauber zunächst Opernsänger, bevor er sich der Operette und dem Tonfilm zuwandte. 1937 sang er in Bayreuth die Titelrolle in Wagners *Lohengrin*; darüber hinaus gehörte er von 1929 bis 1943 zum Ensemble der Berliner Staatsoper, wo er meist in italienischen Opern zu hören war. Bis kurz vor seinem Tod stand er noch regelmäßig auf der Bühne, vor allem in Konzerten und Operettenproduktionen. Auch Peter Anders (1908-1954) wechselte souverän zwischen Operette und Oper. Seinen ersten Erfolg feierte er 1931 als Paris in Offenbachs *La belle Hélène* in der berühmten Berliner Inszenierung von Max Reinhardt. 1938 sang er in der Uraufführung des *Friedenstag* von Richard Strauss in München, und zu seinem Repertoire gehörten später auch andere Strauss-Partien wie Bacchus in *Ariadne auf Naxos* oder Leukippos in *Daphne*.
+
+Aulikki Rautawaara (1906-1990) gehörte wie Irene Eisinger zu den Stars der ersten Festivals in Glyndebourne, wo sie neben Gräfin Almaviva in Mozarts *Le nozze di Figaro* auch Pamina in der *Zauberflöte* sang. Sie stammt aus einer der berühmtesten finnischen Musikerfamilien, und der Komponist Einojuhani Rautavaara ist ihr Neffe.
+
+Anton Dermota (1910-1989) fut le grand ténor des ensembles viennois et salzbourgeois dans les années 1940 et 1950. Il fit une très longue carrière, continuant de chanter jusqu'à l'âge de soixante-dix ans. Né à Kropa, en Slovénie, il prit ensuite la nationalité autrichienne. Dermota chanta Jacquino dans le *Fidelio* de Beethoven pour l'inauguration de l'Opéra d'État de Vienne reconstruit en 1955. Il avait un vaste répertoire, comprenant notamment Lenski dans *Eugène Onéguine* de Tchaïkovski, Des Grieux dans *Manon* de Massenet, et le rôle-titre dans *Palestrina* de Pfitzner. C'était également un grand interprète de lieder.
+
+Elisabeth Schwarzkopf (née en 1915) n'en était qu'au seuil de sa carrière lorsqu'elle enregistra ces extraits d'opérettes de Lehár en 1939 et 1940. Dans *Elisabeth Schwarzkopf : A Career on Record*, d'Alan Sanders et J. B. Steane (Duckworth, Londres : 1995), Dame Elisabeth raconte qu'elle ne garde que de vagues souvenirs de ces séances, mais se rappelle d'avoir été "totalement nerveuse, totalement abasourdie", et que le ténor Rupert Glawitsch était helpful et supportive. Glawitsch (1907-1971) fit une longue carrière, apparaissant sur scène dans des opérettes à Hambourg, Vienne, Graz, entre autres métropoles. Il était particulièrement apprécié au disque, et continua de chanter à la radio et en concert jusque dans les années 1960. Au début de sa carrière sur scène à Vienne, Schwarzkopf chanta dans plusieurs opéras légers et opérettes, mais, bien qu'elle ait fait des enregistrements célèbres de Johann Strauss et de Lehár dans les années 1950, elle n'est jamais apparue sur scène dans *Le Chauve-Souris* ni dans *La Veuve joyeuse* une fois lancée sa carrière internationale. "Il est bien plus difficile d'interpréter l'opérette que l'opéra, dit-elle. Les règles ne sont pas aussi strictes. [...] On a apparemment beaucoup de liberté, mais il faut savoir quelles libertés prendre, et lesquelles ne pas prendre".
+
+Franz Lehár dut le dernier des grands compositeurs d'opérettes viennoises, et il porta la valse à son apogée final. En 1948, dans les derniers mois de sa vie, Lehár s'entretint avec son vieux collègue Oscar Straus, et ils tombèrent d'accord sur le principe fondamental de leur art : "Il doit toujours être un prétexte pour écrire de la belle musique : une musique qui vient droit du cœur ; et qui donne aux chanteurs la possibilité de jouer pleinement de leur voix, et au public un plaisir sans partage."
+
+&copy; Patrick O'Connor, 1999
+
+Patrick O'Connor écrit dans *Gramophone* et dans *The Telegraph* ; il fut conseiller éditorial pour le *New Grove Dictionary of Opera*.
+
+Traduction: Dennis Collins
+
+Übersetzung Eva Reisinger
+
+junge Sängerin hatte Elisabeth Schwarzkopf auch in verschiedenen Spielopern und Operettenproduktionen mitgespielt, doch obwohl sie in den 50er Jahren einige legendäre Aufnahmen mit Operetten von Lehár und Johann Strauß machte, kehrte sie nach Beginn ihrer internationalen Karriere nie wieder als *Lustige Witwe* oder für eine *Fledermaus* auf die Bühne zurück. "Operetten sind viel schwieriger als Opern", meinte sie. "Die Regeln sind nicht so streng. [...] Man hat scheinbar größere Freiräume, aber man muß sehr genau wissen, welche Freiheiten man sich nehmen darf und welche nicht."
+
+Franz Lehár war der letzte Meister der Wiener Operette, und er führte den Wiener Walzer zu einer letzten strahlenden Blüte. 1948, kurz vor seinem Tod, unterhielt sich Lehár noch einmal mit seinem alten Kollegen Oscar Straus, und gemeinsam formulierten sie die Grundsätze der Kunstform Operette: "Sie muß stets ein Vorwand sein, schöne Musik und wahrhaft empfundene Herzenstöne erklingen zu lassen; sie muß Sängern die Möglichkeit geben, sich auszusingen, und dem Publikum, sich ungetrübt zu freuen!"
+
+&copy; Patrick O'Connor, 1999
+
+Patrick O'Connor schreibt Beiträge für *Gramophone* sowie für den *Telegraph*. O'Connor war Consulting Editor des *New Grove Dictionary of Opera*.
+
+Übersetzung Eva Reisinger
+
+---
+
+## 法文简介
+
+# LE MONDE DE L'OPERETTE
+## FRANZ LEHÁR
+
+Le soirée du 30 décembre 1905 au Theater an der Wien, le théâtre historique au centre de Vienne, vit la naissance du théâtre musical du XXe siècle. Ce fut en effet la création mondiale de *Die lustige Witwe* (La Veuve joyeuse) de Franz Lehár, qui non seulement fit connaître Lehár, mais lança un nouveau style d'opéra léger qui allait dominer les scènes du monde. Lehár était 35 ans, et still inconnu outside Autriche. Il avait eu une carrière variée, starting as a professional bandmaster in the Austrian army, playing in orchestras and eventually gaining the post of chief conductor in the opera house at Trieste. Four of his operettas avaient été produites à Vienne, dont l'un, Der Rastelbinder (1902), avait connu un certain succès. L'œuvre avait eu 500 représentations en 1920 - Lehár en dirigea la cent-cinquième, mais it n'avait suscité aucun intérêt auprès du public en dehors de l'Autriche.
+
+Le succès phénoménal de La Veuve joyeuse - en 1910, l'œuvre avait été applaudie à Londres, Paris, Berlin, Hambourg, Budapest, Milan, Moscou, et jusqu'à Shanghai et Melbourne - s'explique assez aisément. Chaque numéro de la partition est un "tube" potentiel ; l'histoire de deux couples d'amants maudits qui défient les conventions est d'un attrait universel ; et Lehár et ses librettistes, Victor Léon et Leo Stein, osèrent une conclusion qui n'était pas tout à fait le "bonheur à tout jamais" conventionnel.
+
+Eva (1911), qui n'a jamais joui de la renommée de certaines des autres œuvres de Lehár, a donné le jour à l'un de ses plus grands airs de valse, "Wär' es auch nichts als ein Traum von Glück". L'histoire, qui se passe dans un grand magasin parisien, et qui est peut-être une parodie lointaine d'Au bonheur des dames de Zola, est on ne peut plus cynique, avec l'une des héroïnes qui prétexte la brutalité de son mari pour inciter un client d'un certain âge à lui payer des vacances. Le sujet se révéla trop choquant pour le public anglophone : l'œuvre ne tint l'affiche que pendant vingt-quatre soirs à Broadway, et ne fut jamais donnée à Londres.
+
+Au lendemain de la Première Guerre mondiale, Lehár et ses librettistes commencèrent à s'essayer à des thèmes plus exotiques. Ce fut d'abord Frasquita (1922). Lors de la première, en mai 1922, le rôle de ténor d'Armand Mirbeau fut chanté par Hubert Marischka. Au cours de la série de cent quatre-vingt-quinze représentations, Marischka fut remplacé par Richard Tauber, lequel fit sensation au point qu'un nouveau partenariat avec Lehár était né, qui devait durer jusqu'à la fin de leur vie à tous deux. Chaque opérette de Lehár devait désormais avoir son "Tauberlied", et Tauber fut tour à tour la vedette de Paganini (1925), Der Zarewitsch (1927), Friederike (1928), Das Land des Lächelas (1929), Schön ist die Welt (1930) et enfin Giuditta, l'œuvre de la maturité de Lehár la plus proche d'un opéra véritable, dont la création eut lieu à l'Opéra d'État de Vienne en 1934.
+
+Paganini avait pour sujet une aventure amoureuse entre le célèbre violoniste italien et la sœur de Napoléon Bonaparte, Maria Anna Elisa, princesse de Lucques et de Piombino. Dans cette histoire d'amour à trois, c'est la musique qui s'interpose entre les amants, puisque Paganini finit par renoncer à la princesse au profit de son violon. Der Zarewitsch est une variation sur un vieux thème, when the heir to the Russian throne est trouvé qu'il ne s'intéresse pas aux femmes, donc on arrange qu'une jeune fille déguisée en garçon le séduise. On comprend que l'œuvre ne se soit jamais imposée en Amérique ou en Angleterre, although the French l'ont bien accueillie.
+
+Friederike tells the story of the young Goethe with a charming peasant girl, and the librettists Ludwig Herzer and Fritz Löhner-Beda inserted some of Goethe's original verses into their text. Of all the Tauber-Lehár operettas, the greatest success was Das Land des Lächelns (Le Pays du sourire), the sad story of a Chinese prince who courts the daughter of a Viennese diplomat and takes her back to China, where they discover that Orient cannot meet Occident in a happy union. "Dein ist mein ganzes Herz" ("Mon cœur tout entier est à toi") devint l'air emblématique de Tauber.
+
+Schön ist der Welt, nouvelle mouture de Endlich allein, est unique dans le domaine de l'opérette en ce que le couple amoureux y reste seul sur scène pendant toute la durée du deuxième acte, isolé dans les montagnes après une avalanche bienvenue.
+
+Giuditta, la dernière œuvre de Lehár pour la scène, a pour thème l'aventure d'un officier avec une exotique jeune méditerranéenne, qui devient chanteuse dans un cabaret d'Afrique du Nord. Malgré la présence de Tauber et de Jarmila Novotná dans la distribution viennoise d'origine, l'œuvre n'eut pas vraiment les faveurs du public ; mais elle concluait dignement la carrière de Lehár, qui prouvait à l'âge de soixante-quatre ans qu'il était encore capable de s'adapter aux changements de mode et d'atmosphère.
+
+Tous les chanteurs de ces enregistrements Telefunken réalisés dans les années 1930 ont grandi avec la musique de Lehár, qu'ils chantent avec beaucoup de naturel et d'affection. La voix de Joseph Schmidt (1904-1942) devint immensément populaire au disque et à la radio. Sa carrière scénique fut confinée à l'estrade de concert, du fait de sa petite taille (il ne mesurait qu'un mètre cinquante). Ses enregistrements restent très admirés, et dans le monde du théâtre d'aujourd'hui, il deviendrait probablement une vedette sans difficulté.
+
+actuel, plus décontracté, il aurait sans doute pu devenir une vedette de la scène sans difficulté. Irene Eisinger (1903-1994) commença sa carrière à Bâle avant d'être engagée par Otto Klemperer au Kroll Oper de Berlin. Tout au long de sa carrière, elle alterna les rôles d'opéra et d'opérette. C'est elle qui créa le rôle de Luise dans Die Bürgschaft de Weill à Berlin en 1932, et elle chanta Despina dans Cosi fan tutte de Mozart à Glyndebourne. Elle tourna dans le film de Stolz, Zwei Herzen im Dreivierteltakt, en 1931, et chanta dans les années 1930 à Londres dans la revue Follow the Sun, et en 1942 dans la reprise de Lilac Time. Elle se fixa en Angleterre, et fit ses dernières apparitions sur scène au festival d'Edimbourg en 1949.
+
+Marcel Wittrisch (1901-1955) débuta, comme Tauber, en tant que chanteur d'opéra avant de passer à l'opérette et au cinéma. Il chanta le rôle-titre dans Lohengrin de Wagner à Bayreuth en 1937 ; et à Berlin, où il fut membre de la Staatsoper de 1929 à 1943, il interpréta de nombreux rôles italiens. Il continua de chanter, surtout en concert et dans des opérettes, jusqu'à la fin de sa vie.
+
+Peter Anders (1908-1954) passait de l'opérette à l'opéra aussi facilement. Il remporta son premier succès en Paris dans La belle Hélène d'Offenbach à Berlin en 1931, dans la célèbre mise en scène de Max Reinhardt. 1938, il participa à la création de Friedenstag de Richard Strauss à Munich, ajoutant ensuite à son répertoire deux autres rôles de Strauss, Bacchus dans Ariadne auf Naxos et Leukippos dans Daphne.
+
+Aulikki Rautawaara (1906-1990), comme Eisinger, était membre de la compagnie lors des premiers festivals de Glyndebourne, où elle chanta Gräfin Almaviva dans Le nozze di Figaro de Mozart et Pamina dans Die Zauberflöte. Elle est issue de l'une des plus éminentes familles de musiciens finlandaises, et avait pour neveu le compositeur Einjuhani Rautavaara.
+
+Anton Dermota (1910-1989) fut le grand ténor des ensembles viennois et salzbourgeois dans les années 1940 et 1950. Il fit une très longue carrière, continuant de chanter jusqu'à l'âge de soixante-dix ans. Né à Kropa, en Slovénie, il prit ensuite la nationalité autrichienne. Dermota chanta Jacquino dans le Fidelio de Beethoven pour l'inauguration de l'Opéra d'État de Vienne reconstruit en 1955. Il avait un vaste répertoire, comprenant notamment Lenski dans Eugène Onéguine de Tchaïkovski, Des Grieux dans Manon de Massenet, et le rôle-titre dans Palestrina de Pfitzner. C'était également un grand interprète de lieder.
+
+Elisabeth Schwarzkopf (née en 1915) n'en était qu'au seuil de sa carrière lorsqu'elle enregistra ces extraits d'opérettes de Lehár en 1939 et 1940. Dans Elisabeth Schwarzkopf : A Career on Record, d'Alan Sanders et J. B. Steane (Duckworth, Londres : 1995), Dame Elisabeth raconte qu'elle ne garde que de vagues souvenirs de ces séances, mais se rappelle d'avoir été "totalement nerveuse, totalement impressionnée", et que le ténor Rupert Glawitsch lui apporta son aide et son soutien. Glawitsch (1907-1971) fit une longue carrière, apparaissant sur scène dans des opérettes à Hambourg, Vienne, Graz, entre autres métropoles. Il était particulièrement apprécié au disque, et continua de chanter à la radio et en concert jusque dans les années 1960. Au début de sa carrière sur scène à Vienne, Schwarzkopf chanta dans plusieurs opéras légers et opérettes, mais, bien qu'elle ait fait des enregistrements célèbres de Johann Strauss et de Lehár dans les années 1950, elle n'est jamais apparue sur scène dans Fledermaus ni dans La Veuve joyeuse une fois lancée sa carrière internationale. "Il est bien plus difficile d'interpréter l'opérette que l'opéra, dit-elle. Les règles ne sont pas aussi strictes. [...] On a apparemment beaucoup de liberté, mais il faut savoir quelles libertés prendre, et lesquelles ne pas prendre."
+
+Franz Lehár dut le dernier des grands compositeurs d'opérettes viennoises, et il porta la valse à son apogée final. En 1948, dans les derniers mois de sa vie, Lehár s'entretint avec son vieux collègue Oscar Straus, et ils tombèrent d'accord sur le principe fondamental de leur art : "Il doit toujours être un prétexte pour écrire de la belle musique : une musique qui vient droit du cœur ; et qui donne aux chanteurs la possibilité de jouer pleinement de leur voix, et au public un plaisir sans partage."
+
+&copy; Patrick O'Connor, 1999
+
+Patrick O'Connor écrit dans Gramophone et dans The Telegraph ; il fut conseiller éditorial pour le New Grove Dictionary of Opera.
+
+Traduction: Dennis Collins
+
+---
+
+## 广告页
+
+### Also available on TELEFUNKEN LEGACY
+
+- **3984-28411-2**: ERICH KLEIBER/BERLINER PHILHARMONIKER - Beethoven, Berlioz, Johann Strauss, Richard Strauss, Reznicek, Nicolai
+- **3984-28407-2**: RICHARD STRAUSS - Don Juan, Ein Heldenleben, Till Eulenspiegel, Mengelberg/Krauss
+- **3984-28412-2**: ERNA SACK - Ciribiribin
+- **3984-28409-2**: HELGE ROSWAENGE, HILDE KONETZNI - Operatic Arias
+- **3984-28410-2**: BEETHOVEN - Symphonies 5 & 6, Mengelberg/Concertgebouw Orchestra
+- **3984-28408-2**: [details not fully visible]
+
+---
+
+## 版权信息
+
+TELEFUNKEN LEGACY
+3984-28406-2
+&copy; & ℗ 1999 TELDEC CLASSICS INTERNATIONAL GMBH, Hamburg, Germany
+A Warner Music Group Company
+Made in Germany

@@ -1,0 +1,11 @@
+{
+  "permissions": {
+    "allow": [
+      "Bash(find \"C:\\\\Users\\\\shuyua01\\\\Music\\\\2025\" -name \"*.wav\" -type f -exec du -b {} +)",
+      "Bash(cd \"C:\\\\Users\\\\shuyua01\\\\Music\\\\2025\" && bash convert_wav_to_flac.sh)",
+      "Bash(bash \"C:\\\\Users\\\\shuyua01\\\\Music\\\\2025\\\\convert_wav_to_flac.sh\")",
+      "Bash(bash \"/c/Users/shuyua01/Music/2025/convert_wav_to_flac.sh\")",
+      "Bash(cd \"C:\\\\Users\\\\shuyua01\\\\Music\\\\2025\" && python convert_wav_to_flac.py)"
+    ]
+  }
+}

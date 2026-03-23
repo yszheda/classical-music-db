@@ -1,0 +1,44 @@
+# Booklet完整原文
+
+## 封面
+HORENSTEIN
+Jascha HORENSTEIN conducts
+SHOSTAKOVICH
+Symphony No. 5
+JANÁČEK
+Taras Bulba
+Vienna Pro Musica
+VOX LEGENDS
+
+## 封底
+JASCHA HORENSTEIN conducts
+VOX 7803
+
+### Dmitry Shostakovich (1906-1975)
+Symphony No. 5 in D Minor
+1. Moderato 15:17
+2. Allegretto 5:03
+3. Largo 15:16
+4. Allegro non troppo 10:00
+Recorded in 1952
+
+### Leoš Janáček (1854-1928)
+Taras Bulba: Rhapsody for Orchestra
+5. The Death of Andriy 10:20
+6. The Death of Ostap 5:23
+7. The Prophecy and Death of Taras Bulba 8:58
+Recorded in 1955
+
+Vienna Pro Musica
+MONO
+Total Playing Time 70:19
+
+PROGRAM NOTES ENCLOSED
+Digitally mastered from original analog tapes.
+24-bit mastering has been used for high definition sound.
+Warning: All Rights Reserved. Unauthorized duplication is a violation of applicable laws
+VOX Reg. U.S. Patent Office. Printed in USA
+© & ℗ 1999 VOX MUSIC GROUP, a division of SPJ Music Inc.,
+95 Oser Avenue, Hauppauge, NY 11788, USA. design: David Lartaud
+www.voxcd.com
+Barcode: 0 47163 78032 5

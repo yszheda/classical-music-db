@@ -1,0 +1,336 @@
+# Booklet完整原文
+
+## 封面
+
+**AMERICAN PIANO**
+**MUSIC OF OUR TIME**
+**Ursula Oppens**
+
+*(Background lists all composers: John Adams • Elliott Carter • Frederic Rzewski • Conlon Nancarrow • Charles Wuorinen • Tobias Picker • Anthony Davis • John Harbison)*
+
+## 封底
+
+**AMERICAN PIANO MUSIC OF OUR TIME**
+**Ursula Oppens, piano**
+
+**CD No. 1 (69:13)**
+1  Conlon Nancarrow: Tango? – 2:47
+2  William Balcom: The Dead Moth Tango – 5:07
+3  Elliott Carter: Night Fantasies – 21:32
+4  Michael Sahl: Tango from the Exiles Cafe – 3:42
+5  Julius Hemphill: Parchment – 5:32
+6  John Adams: Phrygian Gates – 24:40
+7  Lukas Foss: The Curriculum Vitae Tango – 2:12
+8  David Jaggard: Tango – 3:11
+
+**CD No. 2 (65:10)**
+**Conlon Nancarrow: Two Canons for Ursula**
+1  Canon A – 6:02
+2  Canon B – 5:48
+3  Frederic Rzewski: Mayn Yingele – 13:49
+4  Charles Wuorinen: The Blue Bamboula – 11:02
+5  Tobias Picker: Old and Lost Rivers – 4:10
+6  John Harbison: Piano Sonata No. 1 – 16:14
+7  Anthony Davis: Middle Passage – 7:29
+
+This collection was originally released in two separate volumes:
+Volume 1 on CD-604 in 1989 and Volume 2 on CD-699 in 1992.
+©1995 Music and Arts Programs of America Inc.
+P.O. Box 771, Berkeley, CA 94701, U.S.A.
+Phone: 510/525-4583 – Fax: 510/524-2111
+CDs made and printed in the U.S.A.
+
+DDD
+
+Music & Arts
+CD-862 TWO CDs
+
+*Barcode: 0 17685 08622 9*
+
+---
+
+## 内页文字
+
+### URSULA OPPENS
+
+Plays American Piano Music of our Time
+
+**CD No. One of Two (69:13)**
+
+When asked how she conceived of a recording that ranges from the very large musical statements of John Adams and Elliott Carter to six very brief tangos, Ursula Oppens gives a characteristically direct reply: *"Phrygian Gates and Night Fantasies are the two major piano pieces of the last few years – they are anchors of the literature."* The tangos, she adds, *"provide contrast of sound and length; in spite of their brevity they are stylistically clear."* By juxtaposing virtuoso pieces of similar size but vastly different styles she deliberately had the auditory experience of her audience in mind. *"Trust me and listen,"* Oppens urges.
+
+Two years separate the composition of *Phrygian Gates* (1977-78) from that of *Night Fantasies* (1980), but there is a 40-year difference in the ages of their composers. Adams was barely 30 when he composed *Phrygian Gates*. It followed his early experiments in electronic and popular music and preceded the large orchestral works for which he achieved fame in the early 1980s. *Phrygian Gates* was commissioned by Mack McCray, who first performed his San Francisco Conservatory colleague's piece on 17 March 1978 at Hellman Hall in San Francisco and recorded it a year later.
+
+In contrast, *Night Fantasies* was written when Carter was 71 and came after his large vocal and orchestral music of the late 1970s. It was commissioned by and dedicated to four pianists who had been long associated with his music and given first hearings by them in four different countries (by Oppens at the June 1980 Bath Festival; Charles Rosen in Toronto in March 1981; Paul Jacobs – who conceived the project – in New York in November 1981; and Gilbert Kalish at the Badenweiler Festival in Germany in November 1982). Astonishingly for a piece of contemporary music, *Night Fantasies* already has been recorded three other times, by Jacobs, Rosen, and Aleck Karis. Oppens, commenting on the work of her colleagues, observes that the piece lends itself to *"an incredible variety of 'right' interpretations."*
+
+Both compositions are "voyages," Adams' of an abstract nature involving harmonic movement and gradual changes of rhythmic and temporal energy, and Carter's a psychological journey. About his piece, Adams explains:
+
+*Phrygian Gates is a broad, monolithic arch... which is built upon a plan that resembles the classic "tour" of the 12 keys. This particular voyage, however, takes a somewhat different route due to the exclusively modal nature of the writing. All the music is sounded in either the Lydian or the Phrygian mode, and the tonal scheme is such that each of seven different pitches functions first as a Lydian, then as a Phrygian root.
+
+A mode is a scale type based on a central pitch (the final) and the intervallic relationship of the other pitches to that final when they are arranged from lowest to highest note. If the white keys of a piano are used as an example, the Phrygian mode moves up the keys from E to E. Semitones occur between the first and second notes:
+
+[Scale degree: 1-2-3-4-5-6-7-8]
+["V" = semitone]
+
+**E Phrygian**
+E-F-G-A-B-C-E
+&nbsp;&nbsp;&nbsp;V&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;V
+
+and the mode bears a relation to the minor scale.
+
+**A Minor**
+A-B-C-D-E-F-G-A
+&nbsp;&nbsp;&nbsp;V&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;V
+
+The Lydian mode, in the "white-key" example, would rise from F to F. It is closer to the major scale, in that the semi-tones fall between degrees 4-5 and 7-8.
+
+**F Lydian**
+F-G-A-B-C-D-E-F
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;V&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;V
+
+In a C major scale one semitone falls between degrees 3-4, the other between 7-8.
+
+**C Major**
+C-D-E-F-G-A-B-C
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;V&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;V
+
+The final, or root of a mode, can be any pitch so long as the relation of semitones is the same, and this is precisely how Adams undertakes his journey. He uses a "circle of 5ths" and traverses it half-way – A-E-B-F#-C#-Ab-Eb – using both Lydian and Phrygian modes to create 14 sections. In choosing these two modes, Adams had in mind their expressive possibilities: *"The Lydian mode with its light, sensual, resonant personality is played off against the more volatile, unstable but often heroic qualities of the Phrygian."*
+
+To create a sense of contrast, Adams gave each of the 14 sections "its own special qualities: a different figuration, a new register, a quickening or relaxing of the pulse, a change of amplitude, etc... The 'gates' of the title would be the moments of change, when some or even all of these elements were subject to transformation." But not wanting to lose sight of the big picture, he worked on the piece always with the larger form in mind, one in which the really important change throughout the piece was indeed very gradual. In this sense the music falls into a simple [continuous] four-movement plan that has as its subject the life history of the softly repeated E's which open the piece.
+
+The first section involves an increase in energy, leading to a climax of chords. That energy dissipates in the faster second section, which is followed by a slow and calm third part (subtitled "A System of Weights and Measures"). In the final part motion is thrust forward, as the tempo increases once again and the music moves from the lower reaches of the piano up and then down again.
+
+Carter's description of *Night Fantasies* reveals fewer technical secrets, but shares with Adams's a concern for contrast and continuity:
+
+*Night Fantasies is a piano piece of continuously changing moods, suggesting the fleeting thoughts and feelings that pass through the mind during a period of wakefulness at night. The quiet, nocturnal evocation with which it begins and returns occasionally, is suddenly broken by a flighty series of short phrases that emerge and disappear. This episode is followed by many others of contrasting characters and lengths that sometimes break in abruptly and, at other times, develop smoothly out of what has gone before. The work culminates in a loud, obsessive, periodic repetition of an emphatic chord that, as it dies away, brings the work to its conclusion.
+
+In this score, I wanted to capture the fanciful, changeable quality of our inner life at a time when it is not dominated by strong, directive intentions or desires – to capture the poetic moodiness that, in an earlier romantic context, I enjoy in works of Robert Schumann like Kreisleriana, Carnaval, and Davids-bündlertänze.*
+
+---
+
+With the exception of Julius Hemphill's *Parchment*, which was written for Oppens, the tangos on this recording are part of the International Tango Collection, a project conceived in 1983 by the pianist and contemporary-music advocate Yvar Mikhashoff. Over 100 composers from 30 countries were asked to contribute short solo piano pieces. Oppens chose works by composers she "knew and loved."
+
+Originally a 19th-century Argentinian urban song and dance form, the tango became an internationally popular ballroom dance in the early part of the 20th century. Its drama, abrupt contrasts of dynamics and rhythm, and varieties of form have attracted numerous 20th-century composers. Such variety of techniques is evident in these six tangos. The innocence of Conlon Nancarrow's *Tango?*, with its light texture, block dynamics, and clear changes of register disguises the complexity of its notation: three staves, with three different (and periodically altering) meters. William Bolcom's *Dead Moth Tango*, named for the creature that met its demise during the creation of the manuscript, alternates regular rhythms with syncopations, ascents and descents. There is romance and passion in Michael Sahl's *Tango from the Exiles Café*; one can imagine a singer's part over the traditional rhythms. Hemphill's *Parchment* is by contrast abstract, in a subdued mood, full of rubato. Lukas Foss's *Curriculum Vitae Tango*, an arrangement of an accordion piece, pits a legato right hand against a short, rhythmic left hand, gradually merging the two functions in washes of chromatic color. Similarly, David Jaggard's *Tango* takes two dissimilar ideas: strict and free rhythms, alternating them, but giving the free rhythms ever more play, until they overcome any sense of order or regimentation.
+
+◆◆◆◆◆
+
+**CD No. Two of Two (65:10)**
+
+In an article on Ursula Oppens in *Fanfare* (November/December 1991) critic Susan Kagan claims a unique position for the American pianist in today's musical life: *"By virtue of her concert and recording career over the last twenty years, she can truly be considered the doyenne of contemporary piano music. As a co-founder of the pioneering group Speculum Musicae, her presence in the field of new music was a highly visible one, and she has been associated with many of the major composers of our time, some of whom have written music specifically for her."*
+
+©1992, 1994 Music and Arts Programs of America, Inc.
+
+---
+
+### URSULA OPPENS
+
+Continually expanding her repertoire of music from the classics to new commissions, Ms. Oppens has worked to create a better understanding of contemporary music. In 1971, she co-founded *Speculum Musicae*, an ensemble dedicated to bringing contemporary music to modern audiences. In 1983, she gave the New York premiere of John Adams' *Grand Pianola Music* with the New York Philharmonic, as well as the U.K. premiere of Carter's *Night Fantasies*. She has also premiered works by Frederic Rzewski, Charles Wuorinen, Pierre Boulez, Anthony Davis, György Ligeti, Donald Martino, and Anthony Braxton. In recent years Ms. Oppens has given celebrated performances of concertos by Witold Lutoslawski, Lou Harrison, Joan Tower, and Francis Thorne, among others.
+
+Ursula Oppens is a native New Yorker, and the daughter of musical parents. At Radcliffe College she majored in English Literature and Economics, and she received her Master's degree from the Juilliard School. She studied piano with her mother, Edith Oppens, and at Juilliard under Rosina Lhevinne, Leonard Shure, and Guido Agosti. She also studied chamber music with Felix Galimir. In April 1994 at age 50 Ms. Oppens made a belated Carnegie Hall debut in a solo recital that included some of the composers heard in this collection along with Beethoven's last Sonata. In the Fall of 1994 she was appointed John Evans Distinguished Professor of Music at Northwestern University in Evanson, Illinois.
+
+Ms. Oppens received the 1979 Record World Award for her recording of Frederic Rzewski's *The People United Will Never Be Defeated*. She captured the Critics' Choice Award in August 1984 from *High Fidelity* Magazine for her *Nonesuch* release of music for two pianos, played with the late Paul Jacobs. Adams' *Grand Pianola Music* was recorded with pianist Alan Feinberg and I Solisti New York, conducted by Ransom Wilson on the Angel label. In 1986, she recorded Carter's *Piano Concerto* with Michael Gielen and the Cincinnati Orchestra for New World Records.
+
+For Music & Arts, Ms. Oppens has also recorded an album of Beethoven Sonatas including the monumental *Hammerklavier* (CD-734). She is heard as accompanist to soprano Phyllis Bryn-Julson in *Three Song Cycles* of Arnold Schoenberg (CD-650). For release in 1995 Ms. Oppens recorded an album of waltzes from Liszt to Ravel, and she plans to record a further installment in her survey of *American Piano Music of Our Time* in 1995 or 1996, including a new four-hand work by and with Frederic Rzewski.
+
+### CRITICS ON THIS COLLECTION
+
+**Volume I (Grammy Nomination, 1991)**
+*"An extraordinary musical experience. Oppens demonstrates the kind of sensitivity and facility that can only leave other pianists breathless. [She is] great... This is one to have!"*
+–Jim Aikin in *Keyboard*
+
+**Volume II**
+*"Oppens plays everything with her customary brilliance and dedication."*
+–Mark L. Lehman in *American Record Guide*
+
+*"To each work, no matter how disparate in content and style, Oppens brings both a formidable technique and an unerring ear for seductive sonority."*
+–Michael Walsh in *TIME*
+
+### CREDITS
+
+**CD No. 1**
+Recorded at State University of New York – Purchase, N.Y, in 1989
+Producer/Engineer: Judith Sherman
+Editors: Maggi Payne and Judith Sherman
+
+**CD No. 2**
+Recorded at the American Academy and Institute of Arts and Letters, New York, in 1991
+Producer/Engineer/Editor: Judith Sherman
+Recording made possible by a major grant from the National Endowment for the Arts, a Federal agency.
+
+Cover photo by Christian Steiner
+
+---
+
+### Conlon Nancarrow
+
+Born in 1912 in Texarkana, Arkansas, Conlon Nancarrow studied composition in Cincinnati and in Boston with Walter Piston, Nicolas Slonimsky, and Roger Sessions. In the 1930's he worked as a jazz trumpeter, and also studied Indian and African music with Henry Cowell at the New School in New York City. In 1937 he joined the Lincoln Brigade and fought in Spain against the fascist Franco government. Following his return in 1939 he was criticized for having supported the United States government which took away his passport, and as a result he relocated in 1940 to Mexico City, where he still lives.
+
+Up to this point he had written various works for piano and small ensembles. After his move to Mexico, however, the ensuing 40 years were devoted almost entirely to works for player piano, with a few experiments with pneumatic percussion automators and musique concrète. Combining his long-standing interest in jazz with a delight in rhythmic counterpoint, he wrote a series of 60 studies for player piano that combine quasi-improvisatory wit with astonishing rhythmic complexity and frequently awesome speeds, all made possible only by his method of punching holes by hand into the paper rolls that control the player piano(s). For many years he was known in the U.S. only by word of mouth, but in the late 1970's these studies were published by Soundings Press and recorded by 1750 Arch Records, and a new generation of Nancarrow fans came into being. In consequence of the renewed interest from performing musicians, Nancarrow was persuaded to return to more conventional musical media, and wrote two works for small orchestra, a string quartet, a short *Tango* for piano, and the *Two Canons for Ursula* (1988, commissioned by the Composers Forum with support from the Mary Flagler Cary Charitable Trust).
+
+Ursula Oppens writes about the *Two Canons*:
+*Canon A is 5:7. That is, the left hand starts, and is eventually joined by the right hand playing an exact canon at an interval of a fifth and a speed that is 7:5th the speed of the left hand. The two voices meet in the middle: then the right hand moves ahead and finishes first, leaving the left hand to conclude the piece.
+
+Canon B is 2:3. Again the left hand starts alone. However, once the right hand enters (at a speed 3:2 that of the left hand), it is not until the end of the piece that the two hands meet. This canon is at the octave.*
+
+◆◆◆◆◆
+
+### Frederic Rzewski
+
+Frederic Rzewski was born April 13, 1938 in Westfield, Massachusetts. Among his teachers were Roger Sessions and Milton Babbitt at Princeton, Luigi Dallapiccola in Florence, and Elliott Carter. Rzewski says of his career:
+*The beginning of my activity as a professional musician more or less coincided with my Fulbright fellowship for study in Italy from 1960 to 1962. At the time I made the acquaintance of Severino Gazzelloni, with whom I performed many new compositions, and with Franco Evangelisti, through whom I made contact with many composers and concert organizers. I became known as a performer of new piano music by composers like Boulez, Stockhausen, Blisset, Kagel, Cage, Feldman, and Wolff, did world premieres and recorded much of the music of these composers for the first time.
+
+I returned to New York in the summer of 1963, where Charlotte Moorman and I organized the first New York Avant-Garde Festival at Judson Hall. I then returned to Europe, living in Berlin until 1965. By that time I had performed in most of the European new music festivals, and was beginning to be noticed as a composer.
+
+In the spring of 1966 I was a Fellow of the Center for Creative and Performing Arts in Buffalo. Returning to Europe again in the summer of that year, I organized, together with Alvin Curran and Richard Teitelbaum, the MEV (Musica Elettronica Viva) group, dedicated to the performance of live electronic music. Most of my energy over the next four years was devoted to organizing concerts and touring with the group. This amounted to about 200 public appearances and recording sessions in this period. In 1971 I moved with my family back to New York, where we lived for the next five years. I free-lanced around the city, did some teaching, and returned periodically to Europe for concert tours. I also began to concentrate on instrumental composition again, after having devoted myself to live electronics and improvisation with MEV. A few commissions came in: and even though modest, they stimulated tremendously my desire to compose.
+
+Nevertheless, I still had three children and no steady income. So when my wife found a job in Rome in 1976, we moved back to Europe. The following year, Henri Pousseur asked me to teach composition at the Royal Conservatory of Liege, of which he had recently been named director. During the following years, I commuted regularly between Rome and Liege, which became a base for my professional activities in northern Europe. Commissions came for pieces for larger ensemble and orchestra, although my main creative outlet continued to be my own solo performances of my piano music.
+
+Although I lived and worked mostly in Europe, it seemed that the audience for my music, such as it was, was more and more to be found in the United States. I wrote pieces on commission from American groups and did teaching residencies at American schools. I continued to be based in Liege, for both professional and personal reasons. In 1984 and 1985, I wrote, in collaboration with Francoise Walot, a full-length piece of music theatre, based on Aeschylus' *Persians*, with which we toured throughout France in 1985. Other pieces of music theatre followed, the most recent of which (1987) is *The Triumph of Death*, based on Peter Weiss' 1965 play, *The Investigation*.
+
+The composer writes of *Mayn Yingele*:
+*Mayn Yingele (My Little Boy) is a set of variations on a traditional Yiddish ballad with words by Morris Rosenfeld (1862-7) as it appears in Pete Seeger's anthology *Carry It On!* (Simon & Schuster, New York, 1985). The song tells of a worker who never sees his little son awake:
+
+Di arbet traybt mikh ir aroys
+Un lozt mikh shpet tslunf;
+O, fremd iz mir mayn eyn layn layb,
+O, fremd mayn kinds a bilk!
+
+(My work drives me out early,
+And makes me come back late;
+My own body is a stranger.
+A stranger is my child?)
+
+One day, he sings, when you awake, my child, you will not find me any more:
+Ven du denakst, mayn kind,
+Gefinstu mikh nit meir ...
+
+In addition to the 24 written variations, there is an optional improvised cadenza (between variations 22 and 23).
+
+I began writing this piece on November 7, 1988, the 50th anniversary of the Kristallnacht. It is meant as a kind of meditation on that vanished part of Jewish culture whose absence conditions so strongly the culture of the survivors.
+
+This piece is dedicated to Ursula Oppens.*
+
+◆◆◆◆◆
+
+### Charles Wuorinen (b. 1938)
+
+Charles Wuorinen (b. 1938) is one of most prolific and widely performed of living composers, and has been commissioned by many of the world's leading orchestras and ensembles. Wuorinen has been composing since he was five and he has written some 185 pieces to date. His newest works are *Delight of the Muses*, commissioned by the New York City Ballet for the Mozart Bicentenary, *Genesis* for chorus and orchestra, jointly commissioned by the orchestras of San Francisco, Minnesota, and Honolulu, and *Astra* commissioned by the American-Soviet Youth Orchestra. Wuorinen is presently at work on a commission from the Philadelphia Orchestra.
+
+Some two dozen of Wuorinen's works have won prizes and awards including the 1970 Pulitzer Prize for his electronic work, *Time's Encomium* (as the youngest composer ever to receive the award), and the MacArthur Foundation Fellowship in 1986.
+
+In 1975, Stravinsky's widow gave Wuorinen the composer's last sketches for use in a new work, *A Reliquary for Igor Stravinsky*, commissioned for Michael Tilson Thomas by the Buffalo Philharmonic and the Ojai Festival. Wuorinen was the first composer commissioned by the Cleveland Orchestra under Christoph von Dohnanyi (*Movers and Shakers*); and likewise the first to compose for Michael Tilson Thomas' extraordinary New World Symphony (*Bamboula Beach*, commissioned for the Orchestra's inaugural performances in Miami, and subsequently performed many times on tour – including performances at the first week of concerts at the Opera Bastille in Paris, and at Carnegie Hall in New York City). *Bamboula Squared*, Wuorinen's monumental work for orchestra and computer generated sounds, was highlighted at the New York Philharmonic's 1984 *Horizons Festival*, as part of a series of concerts. Wuorinen was asked to co-direct celebrating the use of computers in musical composition. Fractal geometry and the pioneering work of Benoit Mandelbrot have played a crucial role in several of his works including *Bamboula Squared* and the *Natural Fantasy*, a work for organ.
+
+In 1962 he founded the Group for Contemporary Music, America's oldest continuing and most prestigious ensemble dedicated to the performance of new chamber music. In addition to cultivating a new generation of performers, commissioning premieres hundreds of new works, the Group has been a model for many similar organizations which have appeared in the United States since its founding.
+
+Wuorinen was Composer-in-Residence and New Music Adviser with the San Francisco Symphony from 1984 to 1989. He is a member of the American Academy of Arts and Letters.
+
+The composer writes about his piece:
+*Ursula Oppens commissioned *The Blue Bamboula* in 1980, and I finished writing it that December. It is a rare performer indeed who will use her own resources for such a purpose, and my respect and gratitude for this self-sacrifice is exceeded only by my regard for her wonderful musicianship.
+
+The Blue Bamboula is a single-movement piece in which I tried to respond to Oppens' request that the work embody the spirit of an earlier work of mine, the Grand *Bamboula* of 1971, a 6-minute work for string orchestra which had originally been commissioned as a kind of overture with the earlier *Bamboula*'s extroverted spirit – also posits something of the character of an overture. But because it is nearly twice as long as the string piece, it really fits anywhere in a concert program.
+
+Self-revealing comments about one's compositional methods, and program-note descriptions of the actions and unfoldings of pieces, strike me as usually more harmful than helpful. What I can say about *The Blue Bamboula*, though, is that while based on an ordered set like all my works, its surface is very far removed indeed from what journalists talk of something they call "twelve-tone music."
+
+The Blue Bamboula is part of series of pieces named after the Bamboula, which have nothing in common beyond their names here, in addition to the two mentioned, there is also *Bamboula Squared* (1984), for computer-generated tape and orchestra; and *Bamboula Beach* (1987), with Thomas and the New World Symphony of Miami.*
+
+◆◆◆◆◆
+
+### Tobias Picker (b. 1954)
+
+Tobias Picker (b. 1954) has become one of the most-admired and most-performed composers of his generation. An accomplished pianist himself, he is currently at work on a piano concerto (his fourth) commissioned by the New York Philharmonic. Other recent commissions include the San Francisco Symphony, the Saint Paul Chamber Orchestra, the Honolulu Symphony, the American Composers Orchestra, and the Lincoln Center Chamber Music Society. His commissions have been by artists such as: Pinchas Zukerman, Peter Serkin, Christoph Eschenbach, Barbara Hendricks, Young Uck Kim and Ursula Oppens. His music is now beginning to be heard in Europe with recent performances by the Zürich Tonhalle, Helsinki Philharmonic and Jerusalem Symphony. Most recently, the European premieres of his *Three Pieces for Piano and Old and Lost Rivers* were given in Paris by Peter Serkin and Ursula Oppens respectively. Sir John Gielgud recently recorded *The Encantadas* for speaker and orchestra, one of Picker's best known works. Tobias Picker has served as Composer in Residence for various organizations including the Santa Fe Chamber Music Festival from 1987 to 1990. He currently lives in New York City.
+
+The composer says of his *Old and Lost Rivers*:
+*I composed *Old and Lost Rivers* in the spring of 1986 in Houston as a tribute to my new home. Later that year, I made a piano version of the piece for Ursula Oppens and presented it to her as a birthday present.
+
+Driving east from Houston along Interstate 10, you come to a high bridge which crosses many winding bayous. These bayous were left behind by the great wanderings over time of the Trinity River across the land. When it rains, the bayous fill with water and begin to look green and the river. When it is dry, they evaporate and turn brown in the sun. The two main bayous are called Old River and Lost River. Where they converge, a sign on the side of the highway reads: Old and Lost Rivers.
+
+In 1986 the state of Texas was engaged in a celebration of the sesquicentennary. This event was to be marked by a series of concert openers for the Houston Symphony, of which I had just been appointed Composer in Residence.
+
+... (introduction of the piece continues in text that can be seen on the scan)*
+
+◆◆◆◆◆
+
+### John Harbison (b. 1938)
+
+Born in Orange, New Jersey, on 20 December 1938, John Harbison grew up in Princeton. He learned to play viola and tuba, and became an accomplished jazz pianist. He began composing and conducting early. His formal musical studies were completed at Harvard, the Hochschule für Musik, and Princeton (MFA 1963).
+
+In 1963 Harbison married the violinist Rose Mary Pedersen and returned to Harvard as a Junior Fellow. Since 1969, he has been based at the Massachusetts Institute of Technology, where he is the first permanent holder of the Class of 1949 Professorship. For seven years he served as music director of the Cantata Singers and Ensemble of Boston, and since 1984 he has been co-director and regular conductor of the new music ensemble **Collage**.
+
+In the mid-1970s Harbison came to prominence... (text continues on next page)
+
+...nence with *Diotima*, commissioned by the Koussevitzky Foundation and introduced by the Boston Symphony, and *Winter's Tale*, funded by the National Endowment for the Arts, and staged by the San Francisco Opera company. From 1982 to 1984, at the request of Andre Previn, he was resident composer with the Pittsburgh Symphony Orchestra. In 1986 he became resident composer with the Los Angeles Philharmonic, continuing the association with Previn. He has also been resident composer at the Santa Fe Festival, the American Academy in Rome, and Tanglewood. In 1987 his cantata *The Flight into Egypt* won the Pulitzer Prize for Music.
+
+Harbison does most of his composing at a farm in southern Wisconsin, in strict isolation from all teaching and conducting commitments.
+
+Harbison cites a number of experiences as formative for his aesthetic viewpoint: his first trip to Italy and Germany, as a jazz player when he was 15, his sojourn in Berlin during 1961, the year the Berlin Wall was erected, his participation in the Mississippi Freedom Summer in 1964, and his conducting of choral pieces by Schütz, Bach, Webern, and Stravinsky in the early 1970s.
+
+In his early works jazz elements serve as ironic commentary to tightly structured polyphonic and semi-serial music that shows the influence of his Princeton years; there is an overall sense of emotional distance despite the richness and power of the music. In his mature compositions all elements are seamlessly interwoven. Writing in the *Atlantic Monthly*, Lloyd Schwartz takes note of "the brave directness of structure and immediacy of feeling balanced against the enlivening complexity of rhythmic and structural details." He continues: "The pieces since the Violin Concerto have had more and more complex musical and emotional identities, binding together lyricism and irony, humor and sadness, classical and popular procedures, and a mysterious intimacy—all within large-scale structures that have become, if anything, increasingly lucid and accessible."
+
+"The more one scrutinizes the career of John Harbison," Schwartz goes on to say, "the more one sees that if he has begun to cast his shadow—as a 'New Romantic', 'a tune man', a 'radical conservative', or a 'conservative radical,' all labels the press has attached to him—the reason is simply that his music is more memorable, more moving, and less easily pigeonholed than the music of anyone else in his generation."
+
+And Richard Dyer of the *Boston Globe* says: "Each of his new works marks an exciting advance on what is already a significant and substantial achievement; each of his premieres is now an occasion, and for a growing number of knowledgeable people even the progress of his music is an important, even defining part of their lives."
+
+The composer writes about his *First Piano Sonata*:
+*The Piano Sonata no. 1 was written for Robert Shannon, Ursula Oppens, and Alan Feinberg on a consortium mission from the National Endowment for the Arts. It bears the inscription *Roger Sessions in Memoriam*.
+
+The main part of the writing was done at Token Creek, Wisconsin, in 1985. When I returned to the piece expecting to expand, develop and elaborate the ideas, I found this to be false to their nature, so the piece mostly goes forward in a diary-like fashion, with very little of the logical expansions or formal returns I favor in most of my pieces.
+
+There are four main sections. The two Aster sections [first and second] coming in the middle, but the articulations between them are not emphatic, and the piece seems dreamed up rather than premeditated. The pianistic demands are not strenuous by recent standards, or even by the standard of my early Parody (1967), but the requirements in formal insight and subtleties of touch and timing are quite severe. It is safe to say that there are no technical difficulties in the piece that don't originate here as musical difficulties.
+
+Probably this piece will bear the same relationship to its successor in its genre as my first symphony and quartet bore to their seconds—that is, as a concise exploratory journey into territory to be travelled recklessly and expansively later on. But I am not thereby trying to hint that the piece is not ambitious, but only suggesting the colors of its canvas-*
+
+The poem concludes with the lines:
+*(Middle Passage text)
+The deep immortal human wish,
+the timeless will:
+
+Cinqez is deathless primaveal image,
+Me that transfigures many lives.
+Voyage through death
+to life upon these shores.*
+
+---
+
+### Anthony Davis
+
+Anthony Davis has received international recognition for his compositions as well as for his virtuoso performances, both as a solo pianist and as the leader of the ensemble *Episteme*. His recent works include *Violin Sonata*, commissioned for Carnegie Hall for the winner of their International American Music Competition and premiered by Michelle Makarski on 3 February 1991; and a piece for the Saturday Brass Quintet, commissioned through Chamber Music America.
+
+Other recent commissions are: *Litany of Sins*, a composition for the St. Luke's Chamber Ensemble through the Mary Flagler Cary Charitable Trust; *Maps*, a violin concerto for the Kansas City Symphony; *Notes from the Underground*, an orchestral work for the American Composers Orchestra; *Lost Moon Sis*, for soprano Dora Ohrenstein; and *Voyage Through Death To Life Upon These Shores*, a choral work funded through the Composers' Visiting Program for Musica Sacra, San Francisco's Chanticleer, and the Dale Warland Singers. His opera *X, The Life and Times of Malcolm X*, premiered to sold-out houses at the New York City Opera in 1986; his second opera, *Under the Double Moon*, with an original libretto by Deborah Atherton, premiered at the Opera Theatre of St. Louis in June 1989. His third opera, *Tania*, about Patty Hearst, will premiere at the American Music Theater Festival in June 1992; a fourth opera, *Amistad*, is currently under development with poet Thulani Davis, the librettist of X.
+
+Born in Paterson, New Jersey, on February 20, 1951, Davis studies at Wesleyan and Yale universities, and has performed with ensembles led by Leroy Jenkins, Leo Smith, and Anthony Braxton. He was Yale's first Afro-American Fellow, teaching piano and Afro-American studies. In 1987 Davis was appointed Senior Fellow with the Society for the Humanities at Cornell University, and in 1990 he returned to Yale University as Visiting Professor of Music.
+
+Much of Davis's chamber music was originally written for *Episteme*, a unique ensemble of musicians who are disciplined interpreters as well as provocative improvisers. The music for the ensemble was intended to challenge the improviser to find a means of self-expression within the framework of a cohesive composition, which performs with six to ten members, has toured throughout Europe and the United States.
+
+Anthony Davis's propulsive X brilliantly reflects the vitality of Malcolm X's life and persona. Repeated driving rhythms capture the urgency of his life, and abrupt juxtapositions of sharply contrasting musical styles underscore his unexpected, and often drastic, transformations. Stylistically, X is typical of Davis's work—it is contemporary in sound, intensely rhythmic, yet poignantly lyrical at times, and influenced by classical, popular, and non-Western sources. "[X] has brought new life to America's conservative operatic scene," enthused Andrew Porter in *The New Yorker*, "it is not just a stirring and well fashioned one whose music adds a new, individual voice to those previously heard in our opera houses." Added Joseph McLellan in the *Washington Post*: "a significant addition to the American operatic repertoire"; "[X] has the makings of a great American opera," echoed John Rockwell in *The New York Times*.
+
+On April 24, 1988 two of Davis's orchestral works received premiers: *Maps* (Violin Concerto) with Shem Guibbory, violin, and William McGlaughlin conducting the Kansas City Symphony, and *Notes from the Underground* with Paul Dunkel conducting the American Composers Orchestra, Carnegie Hall. Describing the new works, Michael Walsh said in *Time Magazine*: "Imagine Ellington's lush, massed sonorities propelled by Bartók's vigorous whiplash rhythms and overlaid with the seductive percussive haze of the Balinese gamelan orchestra, and you will have an idea of what both the *Concerto* and *Notes from the Underground* sound like." Concludes Walsh about Davis's artistry, "...relaxed and assured—evolutionary, not revolutionary...a talent worth watching and listening to."
+
+The composer writes about the work with which this collection ends:
+*Middle Passage* (1983) was commissioned and first performed by Ursula Oppens. The piece is dedicated to the poet, Robert Haydent, and is inspired by his masterpiece, *Middle Passage*. This epic poem depicts the voyage of slaves to America from various voices and points of view. The poem concludes with a retelling of the Amistad rebellion of 1839 when slaves hijacked a ship enroute from Cuba off the Long Island coast. After several inconclusive hearings, the Supreme Court in New Haven, Connecticut. With former president John Quincy Adams took the case before the captives won their freedom and returned to Africa in 1842. The poem captures this story and inspired two other musical works: *Voyage Through Death to Life Upon These Shores* (1930) is a setting of the poem for a capella choir and *Amistad* will be an opera on the same theme scheduled for premiere in 1994.*
+
+---
+
+## Back advertisement
+
+**OF RELATED INTEREST**
+on the Music & Arts Label
+
+CD-606 **CARTER**: *Quartet No. 4*; **BABBITT**: *Quartet No. 5*; **POWELL**: *Quartet (1912)*, Composers Quartet. (DDD)
+CD-630 **IVES**: *The Two Piano Sonatas*, John Jensen, piano. (DDD)
+CD-635 **AMERICAN PIANO TRIOS**. **HARRISON**: *Double Concerto for Violin, Cello and Javanese Gamelan*; **COWELL**: *Cleistogamy and Pieces For Piano Trio*; **REALE**: *Piano Trio*. Members of the Mirecourt Trio (with the Mills College Gamelan Ensemble in the Harrison work, recorded under the composer's supervision). (AAD)
+CD-686 **TRIO AMERICA I**. **REALE**: *Trio No. 2 'Drowsey Maggie'*; **PERSICHETTI**: *Parable XXII*, Op. 150; **COWELL**: *Trio in Nine Short Movements*. The Mirecourt Trio. (DDD)
+CD-707 **TWO CONTEMPORARY STRING QUARTETS PERFORMED BY THE FINE ARTS QUARTET**. **WUORINEN**: *First String Quartet (1971)* & **BABBITT**: *String Quartet No. 1 (1970)*. (AAD)
+CD-737 **BLACK PIANO**. **WILLIAM GRANT STILL**: *Three Visions*; **HOWARD SWANSON**: *The Cuckoo*; **ROBERT NATHANIEL DETT**: *In The Bottom*; **ULYSSES KAY**: *Inventions in g, a & in C*; **JOHN WESLEY WORK, Jr.**: *Big Bunch of Roses*; **WILLIAM GRANT STILL**: *Traceries*; **OSCAR PETERSON**: *The Gentle Waltz*; **DUKE ELLINGTON**: *Come Sunday*; **SAMUEL COLERIDE-TAYLOR**: *Valse Suite*, Op. 71. Monica Gaylord, piano. (DDD)
+
+**CD • 862**
+**TWO CD SET**
+**MUSIC & ARTS**
+Programs of America, Inc.
+
+For a free complete catalog write to or call:
+MUSIC AND ARTS PROGRAMS OF AMERICA, INC.
+P.O. BOX 771, BERKELEY, CA 94701, U.S.A.
+Phone 510.525.4503 & Fax 510.524.2111
+Made in the U.S.A - Printed in the U.S.A.
+
+DDD
