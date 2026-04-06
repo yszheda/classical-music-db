@@ -22,6 +22,8 @@ npm-debug.log*
 # Environment
 .env
 .env.local
+
+# Media files
 *.jpg
 *.png
 *.jpeg
@@ -29,3 +31,12 @@ npm-debug.log*
 *.cue
 *.mp3
 *.wav
+
+# Scripts (code is in douban repo)
+scripts/
+*.pyc
+__pycache__/
+
+# Temp files
+*.json~
+*.html
