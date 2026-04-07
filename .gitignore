@@ -40,3 +40,7 @@ __pycache__/
 # Temp files
 *.json~
 *.html
+
+# Git worktrees
+.worktrees/
+worktrees/
