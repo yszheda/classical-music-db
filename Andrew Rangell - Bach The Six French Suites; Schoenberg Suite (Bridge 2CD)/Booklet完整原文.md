@@ -182,15 +182,58 @@ The keyboard suite form, fully explored and epitomized by Bach, has remained vit
 
 ## Page 9 (scans/HIPPO_20220124_0009.jpg)
 
-[Continuation of liner notes already complete above]
+### Production Credits
 
-© & © 2008, Bridge Records, Inc.
-200 Clinton Avenue · New Rochelle, NY · 10801
-Manufactured in Canada · All Rights Reserved
-www.BridgeRecords.com
+**Producer:** Andrew Rangell  
+**Recording engineer:** Thomas Stephenson  
+**Editor:** Joel Gordon  
+**Mastering:** Brad Michel  
+**Piano technician:** Anthony McKenna  
+
+**Recorded at the Gardner Museum, Boston, July 2007**  
+**on a Hamburg Steinway D**  
+
+**Executive Producers:** Becky and David Starobin  
+**Graphic Design:** Brook Ellis  
+
+**Many thanks to Eugenie Hainsworth!**
+
+*This recording is for Jerri W. and Martha R.*
+
+**For Bridge Records:** Barbara Bersito, Natalie Bersito, Brook Ellis, Douglas H. Holly, Charlie Post, Doron Schachter, Robert Starobin, Sandra Woodruff
+
+**Bridge Records, Inc.**  
+200 Clinton Avenue  
+New Rochelle, NY 10801  
+Email: BRIDGEREC@bridgerecords.com  
+Brad Napolielio, webmaster
+
+### Andrew Rangell Biography (continued)
+
+been Andrew Rangell . . . Mr. Rangell is an individualist. And such was his intensity—like the late Glenn Gould, he seemed to be propelled by an irresistible force—that the listener's attention was riveted to the music."
+
+Andrew Rangell's extensive discography on the Dorian label includes Bach's Goldberg Variations, Beethoven's final five sonatas, two diverse collections entitled "A Recital of Intimate Works" (Vol. I & II), and a pairing of Beethoven's Diabelli Variations and Ravel's Gaspard de la Nuit. A two-disc set of Bach's six Partitas released in November, 2001 was cited in both The Boston Globe and Boston Phoenix as one of the "Best recordings of 2001." Mr. Rangell's performances of the complete Chopin Mazurkas joined the Dorian catalogue in 2003 and were characterized, in Gramophone, as "taking the humble mazurka to new heights of variety and sophistication." 1998-99 marked Andrew Rangell's first active concert season following a long hiatus due to a serious hand injury. Since that time he has steadily reclaimed and expanded his performance and recording career. He was honored to perform a solo recital in the 2003 Venice "Biennale," Italy's foremost contemporary music festival. This past spring (2008) Andrew Rangell was Artist-In-Residence at the Philadelphia Bach Festival.
 
 ---
 
 ## Page 10 (scans/HIPPO_20220124_0010.jpg)
 
-[Inner back cover / Tracklist for both discs already included above]
+### Other Bridge Records Releases by Andrew Rangell
+
+**Schubert Recital:** Sonata in E-flat, Op. 122; 3 Klavierstücke, D. 946 — BRIDGE 9153
+
+**Hungary:** Honeymoons: Chopin; Ravel; Enescu; Stravinsky — BRIDGE 9154
+
+**Bach Recital:** Little Prelude in C major, BWV 924; Chromatic Fantasy and Fugue, BWV 903; Toccata in G major, BWV 916; French Overture, BWV 831; Concerto in A minor, BWV 974; Concerto in G major, BWV 973 — BRIDGE 9180
+
+**Beethoven Recital:** Sonata No. 10 in G Major, Op. 14, No. 2; Sonata No. 17 in D Minor, Op. 31, No. 2 ("Tempest"); Sonata No. 24 in F-sharp, Op. 78; Sonata No. 9 in E Major, Op. 14, No. 1; Sonata No. 27 in E Minor, Op. 90 — BRIDGE 9181
+
+**DAS WOHLTEMPERIERTE KLAVIER, BOOK 1 (1722) J.S. Bach** — BRIDGE 9246A/B (two discs)
+
+**Five Sonatas:** Ernesto Halffter; George Enescu; Igor Stravinsky — BRIDGE 9205
+
+**A Bridge to Bach:** Orlando Gibbons; Jan Pieterszoon Sweelinck; Muzio Clementi; Leo Ornstein; Thomas Tomkins; Johann Froberger; Antonio Vivaldi; J.S. Bach; Alessandro Scarlatti; Johann Jacob Froberger; Lodovico Giustini; Arcangelo Corelli; George Frideric Handel — BRIDGE 9216
+
+---
+
+www.BRIDGERECORDS.com
