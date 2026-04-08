@@ -25,9 +25,9 @@ The Well-Tempered Clavier, Book I
 BWV 846-869
 ANDREW RANGELL, piano
 
-Recorded September 2006 at Skywalker Sound, New York
-Producers: Andrew Rangell & David v.R. Bowles
-Engineer: David v.R. Bowles
+Recorded at the Gardner Museum, Boston, July-August 2006
+Producer: Andrew Rangell
+Engineer: Thomas Stephenson
 Design: Margery Cantor
 
 bridge

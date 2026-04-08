@@ -45,7 +45,7 @@ Printed in Germany by / Imprimé en RFA par Neef, Wittingen
 
 In odd ways the careers of Bartók and Stravinsky ran parallel in the 1920s and 1930s. Both were dependent on their performing income, and so wrote a great deal for themselves as pianists. Both took up, or took up again, standard forms: sonata, variations, fugue – though in strikingly different ways, as could hardly be better exemplified than by Bartók's Sonata for Two Pianos and Percussion and Stravinsky's Concerto for Two Pianos. Both concentrated – rather unusually, for Stravinsky – on large-scale instrumental compositions. Both, too, were in some sense writing for the home. Stravinsky's exile, of course, was real: he was living in France, with return to Soviet Russia unthinkable. But Bartók was exiled musically. He had few important first performances in Budapest, and after January 1933 he withdrew from performing in German-speaking countries that had been his second musical home.
 
-His opportunities came instead in Britain, in the Netherlands and especially in Basel, where Paul Sacher (later a patron of Stravinsky, among so many others) made possible the first performances of the Music for Strings, Percussion and Celesta in 1937, the Double Violin Concerto and Percussion in 1938, and the Divertimento in 1940. Perhaps the business of writing for another country, not for home, had something to do with the open textures, the clear contrapuntal gambits, the almost geometrical logic that he had reached in the Fifth Quartet of 1934 and developed exultantly in the first two Swiss works. Those have other connections, too: tonal pivots on the circle of minor thirds (D-F#-A, with magnified forms in the Music for Strings and C in the Sonata, and also their matchings and oppositions between the piano and more regular instruments.
+His opportunities came instead in Britain, in the Netherlands and especially in Basel, where Paul Sacher (later a patron of Stravinsky, among so many others) made possible the first performances of the Music for Strings, Percussion and Celesta in 1937, the Double Violin Concerto and Percussion in 1938, and the Divertimento in 1940. Perhaps the business of writing for another country, not for home, had something to do with the open textures, the clear contrapuntal gambits, the almost geometrical logic that he had reached in the Fifth Quartet of 1934 and developed exultantly in the first two Swiss works. Those have other connections, too: tonal pivots on the circle of minor thirds (D-F#-A, with magnified forms in the Music for Strings and C in the Sonata), and also their matchings and oppositions between the piano and more regular instruments.
 
 Bartók's first thought for the Sonata was apparently to write a piece for solo piano and percussion, but he decided that two keyboards would give a better balance, and so came up with an ensemble rather like that of Mozart's *The Wedding* (Les Noces), except that where Stravinsky's ideal was the piano as part of an ensemble (in the Concerto), Bartók writes for the piano-xylophone: for starkly new resonances. The xylophone is correspondingly prominent in the percussion ensemble, coming with the piano-xylophone as the timpani singly their bass; there are also drums, cymbals, a triangle and a tam-tam, the last an addition to the Wedding group. Altogether the percussion offer an alternative musical space to the pianos. But there is also conflict, especially between the two keyboards, as between the two orchestras in the Music for Strings. The pianos are in place for games of inversion and canon, for music happening as if in a mirror.
 
@@ -56,6 +56,12 @@ Bartók came to the two-piano medium by serendipity (the Sonata's first performa
 In place of Bartók's rivety of the pianos, Stravinsky sets them in opposition as equal soloists. The two pianos do not so much merge, as execute a single design: one might remember his earlier love affair with the pianola, especially when the regular pulsation so often gives the music a mechanical feel. Time here is clockwork rather than developmental, which produces an odd approximation to sonata form in the first movement (nevertheless, Stravinsky's closest approximation to that form). The piece has perfectly correct two-section sonata themes and has recapitulation themes to go through the motions of sonata form. And because time goes here in a connected way, we can accept that the variations should arrive before their theme, the main subject of the final prelude and fugue. The slow movement, headed 'Notturno', offers another compromise: his Two-Piano Sonata out of its sense of what is right music.
 
 As a quartet similarity after the Two-Piano Sonata got in order, the third movement in September 1943, he started composing the first movement, and the sonata was completed in February 1944. This time he has himself as performer: the sudden changes of miniatures (apparently for all the themes except the first), the rhythmic drive, the playfulness of the themes, the set of variations, the set of variations with the open textures, the clear contrapuntal gambits, the almost geometrical logic that he had reached.
+
+*Paul Griffiths*
+
+The first performance of the Sonata for Two Pianos was given by the composer and his wife Ditta Pásztory-Bartók in a broadcast from Basel on 10 January 1938; the first public performance was given by the Golds and Fizdale in New York on 16 March 1943. Bartók dedicated the work to his wife.
+
+Stravinsky's Concerto for Two Pianos was first performed by the composer and his son Soulima in a broadcast from Paris on 21 November 1945. The Sonata for Two Pianos was first performed by Nadia Boulanger and Jacques Février in Paris on 22 May 1945.
 
 ---
 
@@ -75,8 +81,47 @@ Bartók en vint au medium de deux pianos par sérendipité (la première exécut
 
 Comme une similitude de quatuor après que la Sonate pour deux pianos ait été mise en ordre, le troisième mouvement en septembre 1943, il commença à composer le premier mouvement, et la sonate fut complétée en février 1944. Cette fois il s'a lui-même comme interprète: les changements soudains de miniatures (apparemment pour tous les thèmes sauf le premier), la drive rythmique, la joueabilité des thèmes, l'ensemble de variations, l'ensemble de variations avec les textures ouvertes, les clairs jeux contrapuntiques, la logique presque géométrique qu'il avait atteinte.
 
+*Traduction: Demis Collinos*
+
+---
+
+## BARTÓK · STRAVINSKY: WERKE FÜR ZWEI KLAVIERE
+
+Auf seltsame Art verliefen die Karrieren von Bartók und Strawinsky in den 20er und 30er Jahren parallel. Beide waren von ihrem Einkommen als ausübende Künstler abhängig und schrieben deshalb viel für sich selbst als Pianisten. Beide griffen auf Standardformen zurück oder nahmen sie wieder auf: Sonate, Variationen, Fuge – wenn auch auf auffallend unterschiedliche Weise, wie kaum besser veranschaulicht werden könnte als durch Bartóks Sonate für zwei Klaviere und Schlagzeug und Strawinskys Konzert für zwei Klaviere. Beide konzentrierten sich – eher ungewöhnlich für Strawinsky – auf großangelegte instrumentale Kompositionen. Beide schrieben gewissermaßen auch für das Zuhause. Strawinskys Exil war natürlich real: Er lebte in Frankreich, eine Rückkehr ins sowjetische Russland war undenkbar. Aber Bartók war musikalisch exiliert. Er hatte wenige wichtige Uraufführungen in Budapest, und nach Januar 1933 zog er sich von Aufführungen in deutschsprachigen Ländern zurück, die seine zweite musikalische Heimat gewesen waren.
+
+Seine Möglichkeiten kamen stattdessen in Großbritannien, in den Niederlanden und besonders in Basel, wo Paul Sacher (später ein Mäzen von Strawinsky, unter so vielen anderen) die Uraufführungen der Musik für Saiteninstrumente, Schlagzeug und Celesta 1937, des Doppelten Violinkonzerts und Schlagzeugs 1938 und des Divertimento 1940 ermöglichte. Vielleicht hatte das Schreiben für ein anderes Land, nicht für die Heimat, etwas mit den offenen Texturen, den klaren kontrapunktischen Spielzügen, der fast geometrischen Logik zu tun, die er im Fünften Quartett von 1934 erreicht und in den ersten beiden Schweizer Werken freudig entwickelt hatte. Diese haben auch andere Verbindungen: tonale Drehpunkte im Kreis der kleinen Terzen (D-Fis-A, mit vergrößerten Formen in der Musik für Saiteninstrumente und C in der Sonate), und auch ihre Zuordnungen und Oppositionen zwischen dem Klavier und reguläreren Instrumenten.
+
+Bartóks erster Gedanke für die Sonate war anscheinend, ein Stück für Soloklavier und Schlagzeug zu schreiben, aber er entschied, dass zwei Keyboards ein besseres Gleichgewicht ergeben würden, und so kam er auf ein Ensemble ähnlich dem von Mozarts *Hochzeit* (Les Noces), außer dass, wo Strawinskys Ideal das Klavier als Teil eines Ensembles war (im Konzert), Bartók für das Klavier-Xylophon schreibt: für schroff neue Resonanzen. Das Xylophon ist entsprechend prominent im Schlagzeugensemble, kommt mit dem Klavier-Xylophon als die Pauken einzeln ihr Bass; es gibt auch Trommeln, Becken, ein Dreieck und ein Tam-Tam, das letzte eine Ergänzung zur Hochzeitsgruppe. Insgesamt bietet das Schlagzeug einen alternativen musikalischen Raum zu den Klavieren. Aber es gibt auch Konflikt, besonders zwischen den zwei Keyboards, wie zwischen den zwei Orchestern in der Musik für Saiteninstrumente. Die Klaviere sind für Spiele der Umkehrung und des Kanons da, für Musik, die geschieht, als ob in einem Spiegel.
+
+Der erste Satz ist Bartóks größte Sonatenstruktur, mit drei Themen, die das Unveränderlichste auf unterschiedliche Weise und in unterschiedlichem Tempo interpretieren. Das erste hat ein schnelles assertives Muster von drei Vierteln plus drei Achteln, das letzte akzentuiert, und oft, langsamer, teilt den Takt in unregelmäßige Einheiten von 4+2+3. Bartók nahm diese komplexen Metren aus der bulgarischen Volksmusik; das dritte beginnt mit aufwärts gerichteten Spiralen und bricht in Arpeggios zusammen; die Musik ist feierlich. Das zweite Thema kommt zu einer kurzen Rekapitulation, das zweite Thema kommt zuerst zurück, gefolgt vom dritten in einem Fugato, und schließlich das erste. Der langsame Satz ist ein Stück Nachtmusik (eine andere Entsprechung zur Musik für Saiteninstrumente) in dreiteiliger Form. Dann das Finale, wieder wie in der Musik für Saiteninstrumente, 4+2+3 in eine viel mehr diatonische Welt, ist durch Bartóks Lieblingsgerät die umkehrbare Kontrapunkt. Sein letzter Abschnitt ist ein Sonaten-Rondo.
+
+Bartók kam zum Zwei-Klavier-Medium durch Zufall (die Uraufführung der Sonate, am 10. Januar 1938, war durch Bartók und seine Frau, in einer Sendung aus der Schweiz, war die erste Aufführung des Werkes durch sie; die erste öffentliche Aufführung war in New York am 16. März 1943, durch die Golds und Fizdale). Strawinsky schrieb das erste seiner Zwei-Klavier-Werke 1920/21, und sein Sohn Soulima war der erste Pianist, der die Sonate für zwei Klaviere spielte. Er musste nur das Werk beiseite legen, um *Perséphone* zu schreiben, bevor er die Sonate 1943/44 vollendete. Die zwei Strawinskys geben die erste Aufführung in Paris am 21. November 1945.
+
+Anstelle von Bartóks Vernietung der Klaviere setzt Strawinsky sie in Opposition als gleiche Solisten. Die zwei Klaviere verschmelzen nicht so sehr, als führen sie einen einzigen Entwurf aus: man könnte sich an seine frühere Liebesbeziehung zum Pianola erinnern, besonders wenn der regelmäßige Puls der Musik so oft ein mechanisches Gefühl gibt. Zeit ist hier Uhrwerk eher als Entwicklung, was eine seltsame Annäherung an die Sonatenform im ersten Satz produziert (trotzdem Strawinskys nächste Annäherung an diese Form). Das Stück hat perfekt korrekte zweiteilige Sonatenthemen und hat Rekapitulationsthemen, um die Bewegungen der Sonatenform zu durchlaufen. Und weil die Zeit hier in verbundener Weise vergeht, können wir akzeptieren, dass die Variationen vor ihrem Thema ankommen sollten, das Hauptthema des finalen Präludiums und Fuge. Der langsame Satz, überschrieben 'Notturno', bietet einen anderen Kompromiss: seine Zwei-Klavier-Sonate aus ihrem Sinn von dem, was rechte Musik ist.
+
+Als eine Quartett-Ähnlichkeit nach der Zwei-Klavier-Sonate in Ordnung kam, der dritte Satz im September 1943, begann er den ersten Satz zu komponieren, und die Sonate wurde im Februar 1944 vollendet. Diesmal hat er sich selbst als Interpret: die plötzlichen Änderungen von Miniaturen (anscheinend für alle Themen außer dem ersten), der rhythmische Antrieb, die Verspieltheit der Themen, der Satz von Variationen, der Satz von Variationen mit den offenen Texturen, die klaren kontrapunktischen Spielzüge, die fast geometrische Logik, die er erreicht hatte.
+
+*Heinrich Lindlar*
+
 ---
 
 **IGOR STRAVINSKY**
+*(Photo: Werner Neumeister)*
 
 **BÉLA BARTÓK**
+
+---
+
+## 录音制作信息
+
+**ADD**
+Recordings: Hamburg, Studio Rahlau, 6/1977
+Produced by Werner Mayer
+Balance Engineer: Günter Hermanns
+Publishers: Boosey & Hawkes, London (Bartók); B. Schott's Söhne, Mainz (Stravinsky)
+℗ 1977 Polydor International GmbH, Hamburg
+© 1992 Paul Griffiths; © 1977 Prof. Dr. Heinrich Lindlar
+Cover Design: Holger Matthies
+Photo Igor Stravinsky: Werner Neumeister
+Art Direction: Hartmut Pfeiffer
+Printed in Germany by / Imprimé en RFA par Neef, Wittingen

@@ -220,9 +220,9 @@ Amsterdam, Concertgebouw, October 16, 1954
 
 ---
 
-## Biography Text
+## Biography
 
-**After a 1933 performance of *Il Trovatore* at La Scala, Milan, the great Italian bass-basso Ezio Pinza sent a telegram of congratulations to the leading tenor about his interpretation of Manrico: 'which is matchless, combines drama, passion, *fuocaggine* and *bel canto* and has the quality of Tamagno, Masini, Marconi and Stagno. Best wishes for many more years.'**
+**After a 1953 performance of *Il Trovatore* at La Scala, Milan, the great Italian bass-basso Ezio Pinza sent a telegram of congratulations to the leading tenor about his interpretation of Manrico: 'which is matchless, combines drama, passion, *fuocaggine* and *bel canto* and has the quality of Tamagno, Masini, Marconi and Stagno. Best wishes for many more years.'**
 
 **Giacomo Lauri-Volpi** was in fact blessed with a further *forty-six* years of his life which he spent in front of the public as one of the greatest and most enduring singers of his generation. Gala celebrates his artistry in this two-volume collection of recordings.
 

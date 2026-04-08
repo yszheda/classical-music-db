@@ -9,6 +9,8 @@
 ## TEXT AND LEGEND
 **by Piero Rattalino**
 
+In the 50s, a critical revision of modern music history began in the US: some came to maturity, or, as the case may be, had finished. The public no longer willingly accepted tradition and authority, and the young, for the time, against the tradition (and not only in the arts), were called "avant-garde." The avant-garde was then synonymous with the modern, or, as the case may be, with the new. In music, the term "avant-garde" was applied to a group of composers who, in one way or another, had broken with the past, with tradition, with the conventions of the past. The term was used in a variety of ways, but it was generally understood to mean a break with the past, a break with tradition, a break with convention.
+
 Beethoven's First Concerto played by Andor Foldes in 1958 (reissued on LP in 1977) is a truly exceptional document. The "conductor" is Hans Rosbaud – and I use inverted commas advisedly – for he allows the soloist a freedom rarely granted by a conductor. But what freedom! The soloist can vary tempo, dynamics, phrasing at will. And yet, the result is not chaos, but a coherent, convincing interpretation.
 
 The orchestra was the Radio Orchestra of Lugano, today known as the Orchestra della Svizzera Italiana. The recording was made in the Auditorio RSI. The acoustics are dry, the sound is clear, the balance between piano and orchestra is perfect.
@@ -34,6 +36,8 @@ These recordings are a testament to Andor Foldes' artistry. He was a pianist of 
 
 ## IL TESTO E IL MITO
 **di Piero Rattalino**
+
+Negli anni '50 iniziò una revisione critica della storia della musica moderna: alcuni giunsero a maturità o, a seconda dei casi, avevano terminato. Il pubblico non accettava più volentieri la tradizione e l'autorità, e i giovani, per il tempo, contro la tradizione (e non solo nelle arti), erano chiamati "avanguardia". L'avanguardia era allora sinonimo di moderno, o, a seconda dei casi, di nuovo. In musica, il termine "avanguardia" era applicato a un gruppo di compositori che, in un modo o nell'altro, avevano rotto con il passato, con la tradizione, con le convenzioni del passato. Il termine era usato in vari modi, ma generalmente si intendeva una rottura con il passato, una rottura con la tradizione, una rottura con la convenzione.
 
 Il Concerto n. 1 di Beethoven interpretato da Andor Foldes nel 1958 (ristampato su LP nel 1977) è un documento davvero eccezionale. Il "direttore" è Hans Rosbaud – e uso le virgolette a proposito – poiché concede al solista una libertà raramente concessa da un direttore. Ma che libertà! Il solista può variare tempo, dinamica, fraseggio a volontà. Eppure, il risultato non è il caos, ma un'interpretazione coerente, convincente.
 

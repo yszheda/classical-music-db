@@ -63,3 +63,39 @@ Le quatuor Amadeus était un groupe bien équilibré. Brainin était un leader n
 **medici arts**
 **WDR THE COLOGNE BROADCASTS**
 **FROM THE PRODUCERS OF BBC LEGENDS**
+
+---
+
+## Credits /制作信息
+
+**For Medici Arts Limited:**
+- John Patrick (Executive Producer)
+- Lucy Blakeson (Label Manager)
+
+**Remastering:** Stephan Schmidt
+
+**Booklet Editors:** texthouse, Hamburg
+
+**Design:** Tobasco Creative Communications
+
+**Front Cover Photography:** Tully Potter Collection
+
+**Original Producer:** Horst Hempel
+
+**Original Recording Producer:** Oepen
+
+**Original Recording Engineer:** Ebert (Beethoven), Lustig (Mozart)
+
+**With grateful thanks to:** Florian Streit
+
+**Medici Arts Limited** also produces **BBC Legends**, the **Royal Opera House Heritage Series** and **Classic Archive**.
+
+**For release updates please contact:**
+Medici Arts Ltd, 26-28 Hammersmith Grove, London W6 7BA
+**Tel:** 0044 20 8834 1023
+**Fax:** 0044 20 8834 1100
+**Email:** info@mediciarts.co.uk
+**www.mediciarts.co.uk**
+
+℗ and © 2007 Medici Arts Limited
+Produced by Westdeutscher Rundfunk Köln, broadcast in 1956

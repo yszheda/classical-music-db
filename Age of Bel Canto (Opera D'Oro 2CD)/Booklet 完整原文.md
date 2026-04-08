@@ -23,101 +23,121 @@ Among the others are names familiar to every serious opera lover, but to no one 
 ## CD 1
 
 1. **Handel**: Alessandro "Lusinghe più care"
-   Marcella Sembrich, soprano, 1907
+   (Marcella Sembrich, soprano, 1907)
 
 2. **Mozart**: Die Entführung aus dem Serail "Martern aller Arten"
-   Maria Ivogün, soprano, 1930
+   (Maria Ivogün, soprano, 1919)
 
 3. **Mozart**: Le nozze di Figaro "Voi che sapete"
-   Nellie Melba, soprano, 1907
+   (Nellie Melba, soprano, 1907)
 
 4. **Gluck**: Alceste "Divinités du Styx"
-   Helen Traubel, soprano, 1946
+   (Helen Traubel, soprano, 1940)
 
 5. **Rossini**: Il barbiere di Siviglia "Una voce poco fa"
-   Amelita Galli-Curci, soprano, 1922
+   (Amelita Galli-Curci, soprano, 1917)
 
-6. **Rossini**: La Cenerentola "Senti un po'..."
-   Amelita Galli-Curci, soprano, 1922
+6. **Rossini**: La Cenerentola "Nacqui all'affanno"
+   (Conchita Supervia, mezzo-soprano, 1909)
 
-7. **Bellini**: La sonnambula "Come per me sereno...Soave il cor"
-   Luisa Tetrazzini, soprano, 1910
+7. **Bellini**: La sonnambula "Come per me sereno...Sovra il sen"
+   (Luisa Tetrazzini, soprano)
 
 8. **Bellini**: La sonnambula "Ah! non credea mirarti"
-   Claudia Muzio, soprano, 1919
+   (Claudia Muzio, soprano, 1935)
 
 9. **Bellini**: Norma "Casta Diva"
-   Toti dal Monte, soprano, 1929
+   (Toti dal Monte, soprano, 1909)
 
 10. **Bellini**: Norma "Ah! bello a me ritorna"
-    Celestina Boninsegna, soprano, 1908
+    (Celestina Boninsegna, soprano, 1906)
 
 11. **Bellini**: I Puritani "Qui la voce"
-    Marcella Sembrich, soprano, 1907
+    (Marcella Sembrich, soprano, 1907)
 
 12. **Donizetti**: Lucrezia Borgia "Com'è bello"
-    Celestina Boninsegna, soprano, 1908
+    (Celestina Boninsegna, soprano, 1908)
 
 13. **Donizetti**: Lucia di Lammermoor "Regnava nel silenzio...Quando rapita in estasi"
-    Amelita Galli-Curci, soprano, 1929
+    (Luisa Tetrazzini, soprano, 1909)
 
 14. **Donizetti**: Lucia di Lammermoor "Il dolce suono" (Mad Scene)
-    Amelita Galli-Curci, soprano, 1929
+    (Amelita Galli-Curci, soprano, 1929)
 
-15. **Donizetti**: La figlia del reggimento "Che giorno felice...Tanto amore"
-    Toti dal Monte, soprano, 1929
+15. **Donizetti**: La figlia del reggimento "Lo dice ognun"
+    (Toti dal Monte, soprano, 1928)
 
 16. **Donizetti**: Don Pasquale "Tornami a dir che m'ami"
-    Toti dal Monte, soprano; Tito Schipa, tenor, 1929
+    (Toti dal Monte, soprano; Tito Schipa, tenor, 1933)
 
 ---
 
 ## CD 2
 
-1. **Handel**: Semele "Ombra mai fu"
-   Tito Schipa, tenor, 1909
+1. **Handel**: Serse "Ombra mai fu"
+   (Tito Schipa, tenor, 1909)
 
 2. **Mozart**: Die Entführung aus dem Serail "Konstanze, dich wiederzusehen"
-   Julius Patzak, tenor, 1930
+   (Julius Patzak, tenor, 1935)
 
 3. **Mozart**: Don Giovanni "Madamina, il catalogo è questo"
-   Tancredi Pasero, bass, 1914
+   (Tancredi Pasero, bass, 1941)
 
 4. **Rossini**: Il barbiere di Siviglia "Ecco ridente"
-   Tito Schipa, tenor, 1926
+   (Tito Schipa, tenor, 1926)
 
 5. **Rossini**: Il barbiere di Siviglia "Largo al factotum"
-   Apollo Granforte, baritone, 1926
+   (Apollo Granforte, baritone, 1925)
 
-6. **Rossini**: Guglielmo Tell "Tutto m'arride"
-   Nicola Rossi-Lemeni, bass-baritone, 1951-53
+6. **Rossini**: Guglielmo Tell "Resta immobile"
+   (Nicola Rossi-Lemeni, bass-baritone, 1951-53)
 
 7. **Rossini**: Stabat Mater "Cujus animam gementem"
-   Enrico Caruso, tenor, 1920
+   (Enrico Caruso, tenor, 1913)
 
 8. **Bellini**: La sonnambula "Vi ravviso"
-   Feodor Chaliapin, bass, 1913
+   (Nicola Rossi-Lemeni, bass-baritone, 1951-53)
 
-9. **Rossini**: Norma "Deh! con te, con te li prendi"
-   Nicola Rossi-Lemeni, bass-baritone, 1951-53
+9. **Bellini**: Norma "Ite sul colle"
+   (Feodor Chaliapin, bass, 1912)
 
-10. **Bellini**: Norma "Tu che ardisci"
-    Feodor Chaliapin, bass, 1913
+10. **Bellini**: I Puritani "A te, o cara"
+    (Miguel Fleta, tenor, 1923)
 
 11. **Bellini**: I Puritani "Suoni la tromba"
-    Giuseppe de Luca, baritone, 1912
+    (Pasquale Amato, baritone, 1912)
 
-12. **Bellini**: I Puritani "Verrò fra poco"
-    Hipolito Lazaro, tenor, 1910
+12. **Bellini**: I Puritani "Viene fra queste braccia"
+    (Hipolito Lazaro, tenor, 1916)
 
 13. **Donizetti**: L'elisir d'amore "Una furtiva lagrima"
-    Ferruccio Tagliavini, tenor, 1949
+    (Ferruccio Tagliavini, tenor, 1909)
 
-14. **Donizetti**: Lucia di Lammermoor "Chi mi frena" (Sestetto)
-    Beniamino Gigli, tenor; Amelita Galli-Curci, soprano; Louise Homer, contralto; Giuseppe de Luca, baritone; Ezio Pinza, bass, 1927
+14. **Donizetti**: Lucia di Lammermoor "Chi mi frena" (Sextet)
+    (Beniamino Gigli, Angelo Bada, tenors; Amelita Galli-Curci, soprano; Louise Homer, contralto; Giuseppe de Luca, baritone; Ezio Pinza, bass, 1927)
 
 15. **Donizetti**: La Favorita "Spirto gentil"
-    John McCormack, tenor, 1909
+    (John McCormack, tenor, 1909)
 
 16. **Donizetti**: Il Duca d'Alba "Angelo casto e bel"
-    Enrico Caruso, tenor, 1910
+    (Enrico Caruso, tenor, 1915)
+
+---
+
+## Performances by
+
+Pasquale Amato, Angelo Bada, Celestina Boninsegna, Enrico Caruso, Feodor Chaliapin, Miguel Fleta, Amelita Galli-Curci, Beniamino Gigli, Apollo Granforte, Louise Homer, Maria Ivogün, Hipolito Lazaro, Giuseppe de Luca, John McCormack, Nellie Melba, Toti dal Monte, Claudia Muzio, Tancredi Pasero, Julius Patzak, Ezio Pinza, Nicola Rossi-Lemeni, Tito Schipa, Marcella Sembrich, Conchita Supervia, Ferruccio Tagliavini, Luisa Tetrazzini and Helen Traubel.
+
+---
+
+## 版权信息
+
+OPD-8006
+
+Manufactured in the U.S.A. by Allegro Corporation © 2002 Allegro Corporation.
+All rights reserved. Unauthorized duplication or public broadcast is prohibited.
+
+ALLEGRO
+14134 NE Airport Way
+Portland, OR 97230-3443
+www.allegro-music.com

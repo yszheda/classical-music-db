@@ -114,7 +114,13 @@ The Adrienne Soós & Ivo Haag piano duo was formed in 1994. The two pianists hav
 
 ## 第四页 (scans/HIPPO_20230516_0004.jpg)
 
-[This page contains mostly Naxos marketing material for other recordings]
+# Piano Duo – Adrienne Soós and Ivo Haag
+
+The two pianists Adrienne Soós and Ivo Haag have been a firmly-established piano duo for more than fifteen years, and have become one of the leading chamber music ensembles in Switzerland. Playing on two pianos as well as on one instrument four hands, they appear regularly with orchestras, and collaborate with singers and instrumentalists. Their distinctive programmes include standard repertoire, music that has been long forgotten and premières, with newly commissioned works. Their performances include appearances at the Lucerne Festival, the Schubertiade Feldkirch and the Musiktage Mondsee and their recordings have appeared on MDG Dahringhaus und Grimm, Hungaroton, Musiques Suisses and Pan Classics. The duo formed when they were students at the Liszt Academy in Budapest in the classes of Péter Solymos (piano) and Ferenc Rados (chamber music). They were also encouraged by György Kurtág and András Schiff. A native of Hungary, Adrienne Soós began her studies at the Béla Bartók Conservatory in her hometown of Budapest and completed them with Tibor Hazay at the Musikhochschule Freiburg (im Breisgau). Ivo Haag also studied at the Musikhochschule Zurich, among other subjects *Lieder* interpretation with Irwin Gage, and with Edith Fischer, a pupil of Claudio Arrau.
+
+www.klavierduo.ch
+
+*Photo: Priska Ketterer*
 
 ## Also available from Naxos:
 

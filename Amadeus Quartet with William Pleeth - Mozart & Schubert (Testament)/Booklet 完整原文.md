@@ -8,20 +8,35 @@
 ## Wolfgang Amadeus Mozart (1756-1791)
 ### Sinfonia Concertante in E flat for violin & viola, K.364
 
-**Recording**: Abbey Road, London, 1954
+**Recording**: Abbey Road, London, 1954 (Studio No.1)
 **Norbert Brainin** - violin; **Peter Schidlof** - viola
 **London Mozart Players**
 conducted by **Harry Blech**
+
+**Balance Engineer**: Klaus Helmrath
+**Recording Supervisor**: Dr. Horst Lindhorst
+
+I. Allegro maestoso - 12:47
+II. Andante - 11:51
+III. Presto - 6:36
 
 ---
 
 ## Franz Schubert (1797-1828)
 ### String Quintet in C, D.956
 
-**Recording**: Abbey Road, London, 1953
+**Recording**: Abbey Road, London, 1953 (Studio No.1)
 **The Amadeus Quartet**: Norbert Brainin, Siegmund Nissel violins
 Peter Schidlof viola; Martin Lovett 'cello
 with **William Pleeth** 'cello
+
+**Balance Engineer**: Klaus Helmrath
+**Recording Supervisor**: Dr. Horst Lindhorst
+
+I. Allegro ma non troppo - 15:08
+II. Adagio - 13:46
+III. Scherzo (Presto) & Trio (Andante sostenuto) - 9:52
+IV. Allegretto - 10:01
 
 ---
 

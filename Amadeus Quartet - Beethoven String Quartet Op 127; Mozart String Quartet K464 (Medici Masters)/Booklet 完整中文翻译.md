@@ -41,3 +41,39 @@
 **medici arts**
 **WDR 科隆广播**
 **BBC 传奇系列制作人出品**
+
+---
+
+## 制作信息
+
+**Medici Arts Limited 制作团队：**
+- John Patrick（执行制作人）
+- Lucy Blakeson（厂牌经理）
+
+**重制：** Stephan Schmidt
+
+**小册子编辑：** texthouse, Hamburg
+
+**设计：** Tobasco Creative Communications
+
+**封面摄影：** Tully Potter Collection
+
+**原始制作人：** Horst Hempel
+
+**原始录音制作人：** Oepen
+
+**原始录音工程师：** Ebert（贝多芬）, Lustig（莫扎特）
+
+**特别感谢：** Florian Streit
+
+**Medici Arts Limited** 还制作 **BBC Legends**、**皇家歌剧院遗产系列** 和 **Classic Archive**。
+
+**发行更新请联系：**
+Medici Arts Ltd, 26-28 Hammersmith Grove, London W6 7BA
+**电话：** 0044 20 8834 1023
+**传真：** 0044 20 8834 1100
+**邮箱：** info@mediciarts.co.uk
+**网址：** www.mediciarts.co.uk
+
+℗ 和 © 2007 Medici Arts Limited
+由西德意志科隆广播电台制作，1956 年广播

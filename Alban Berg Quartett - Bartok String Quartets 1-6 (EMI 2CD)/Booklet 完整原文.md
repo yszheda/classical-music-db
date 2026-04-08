@@ -63,7 +63,9 @@ The Fourth Quartet (1928) is quite different in form: a complex single movement 
 
 The outer movements also abound in the Fifth Quartet (1934), which again is in palindromic sequence, though here, as in the Fourth, the finale, belonging not to the abrasive Fifth and Fourth Quartet but rather to that of the more self-contained and distant Second Concerto that had intervened. As in that concerto, the two outer movements converge on a scherzo, flanked by parallel slow movements and framed by a sonata and a rondo. But, significantly, the scherzo is not bounding or intensive like its predecessors among Bartók's quartets: it is grave, playful, with some of a cadences in shifting Bulgarian metre, with a trio of isolated pizzicato.
 
-There is parody and variation again in the Sixth Quartet (1939); each of the four movements begins with a different version of the same music, heard as a viola solo in the first and then presented in progressively longer and richer forms until in the finale it occupies the whole substance. It is as if each movement after the first is the same question. The finale does not bring the work to a satisfactory answer but rather pursues the question into silence, the last pizzicato of the quartets, from notes D-A-G, Purismus, 1987.
+There is parody and variation again in the Sixth Quartet (1939); each of the four movements begins with a different version of the same music, heard as a viola solo in the first and then presented in progressively longer and richer forms until in the finale it occupies the whole substance. It is as if each movement after the first is the same question. The finale does not bring the work to a satisfactory answer but rather pursues the question into silence, the last pizzicato of the quartets.
+
+— Peter Worsley Saxton, from notes to a complete Bartók Quartets cycle by the Alban Berg Quartett (EMI Reflexe)
 
 ---
 
@@ -81,7 +83,9 @@ Das Vierte Quartett (1928) ist in der Form ganz anders: ein komplexer einzelner 
 
 Die äußeren Sätze sind auch im Fünften Quartett (1934) reichlich vorhanden, das wieder in palindromischer Sequenz ist, obwohl hier, wie im Vierten, das Finale, nicht zum abrasiven Fünften und Vierten Quartett gehört, sondern eher zu dem distanzierteren Zweiten Konzert, das dazwischen gekommen war. Wie in jenem Konzert konvergieren die zwei äußeren Sätze auf ein Scherzo, flankiert von parallelen langsamen Sätzen und umrahmt von einer Sonate und einem Rondo. Aber bezeichnenderweise ist das Scherzo nicht hüpfend oder intensiv wie seine Vorgänger unter Bartóks Quartetten: es ist ernst, verspielt, mit einigen Kadenzern im wechselnden bulgarischen Metrum, mit einem Trio aus isoliertem Pizzicato.
 
-Es gibt wieder Parodie und Variation im Sechsten Quartett (1939); jeder der vier Sätze beginnt mit einer verschiedenen Version derselben Musik, im ersten als Bratschensolo gehört und dann in progressiv längeren und reicheren Formen präsentiert, bis es im Finale die ganze Substanz einnimmt. Es ist, als ob jeder Satz nach dem ersten dieselbe Frage ist. Das Finale bringt das Werk nicht zu einer befriedigenden Antwort, sondern verfolgt die Frage eher in die Stille hinein, das letzte Pizzicato der Quartette, von den Noten D-A-G, Purismus, 1987.
+Es gibt wieder Parodie und Variation im Sechsten Quartett (1939); jeder der vier Sätze beginnt mit einer verschiedenen Version derselben Musik, im ersten als Bratschensolo gehört und dann in progressiv längeren und reicheren Formen präsentiert, bis es im Finale die ganze Substanz einnimmt. Es ist, als ob jeder Satz nach dem ersten dieselbe Frage ist. Das Finale bringt das Werk nicht zu einer befriedigenden Antwort, sondern verfolgt die Frage eher in die Stille hinein, das letzte Pizzicato der Quartette.
+
+— Peter Worsley Saxton (aus dem Englischen übersetzt)
 
 ---
 
@@ -101,7 +105,9 @@ Le Quatrième Quatuor (1928) est très différent dans la forme: un mouvement un
 
 Les mouvements extérieurs abondent aussi dans le Cinquième Quatuor (1934), qui est à nouveau en séquence palindrome, bien qu'ici, comme dans le Quatrième, le finale, n'appartenant pas aux abrasifs Cinquième et Quatrième Quatuors mais plutôt au Second Concerto plus contenu et distant qui était intervenu. Comme dans ce concerto, les deux mouvements extérieurs convergent sur un scherzo, flanqué de mouvements lents parallèles et encadré par une sonate et un rondo. Mais, significativement, le scherzo n'est pas bondissant ou intense comme ses prédécesseurs parmi les quatuors de Bartók: il est grave, enjoué, avec quelques cadences dans une métrique bulgare changeante, avec un trio de pizzicato isolé.
 
-Il y a parodie et variation à nouveau dans le Sixième Quatuor (1939); chacun des quatre mouvements commence par une version différente de la même musique, entendue comme solo d'alto dans le premier puis présentée dans des formes progressivement plus longues et plus riches jusqu'à ce que dans le finale elle occupe toute la substance. C'est comme si chaque mouvement après le premier était la même question. Le finale n'apporte pas à l'œuvre une réponse satisfaisante mais poursuit plutôt la question dans le silence, le dernier pizzicato des quatuors, des notes D-A-G, Purismus, 1987.
+Il y a parodie et variation à nouveau dans le Sixième Quatuor (1939); chacun des quatre mouvements commence par une version différente de la même musique, entendue comme solo d'alto dans le premier puis présentée dans des formes progressivement plus longues et plus riches jusqu'à ce que dans le finale elle occupe toute la substance. C'est comme si chaque mouvement après le premier était la même question. Le finale n'apporte pas à l'œuvre une réponse satisfaisante mais poursuit plutôt la question dans le silence, le dernier pizzicato des quatuors.
+
+— Peter Worsley Saxton (traduit de l'anglais par Nicole Vervoitte)
 
 ---
 
