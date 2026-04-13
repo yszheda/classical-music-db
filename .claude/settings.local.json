@@ -1,11 +1,47 @@
 {
   "permissions": {
     "allow": [
-      "Bash(find \"C:\\\\Users\\\\shuyua01\\\\Music\\\\2025\" -name \"*.wav\" -type f -exec du -b {} +)",
-      "Bash(cd \"C:\\\\Users\\\\shuyua01\\\\Music\\\\2025\" && bash convert_wav_to_flac.sh)",
-      "Bash(bash \"C:\\\\Users\\\\shuyua01\\\\Music\\\\2025\\\\convert_wav_to_flac.sh\")",
-      "Bash(bash \"/c/Users/shuyua01/Music/2025/convert_wav_to_flac.sh\")",
-      "Bash(cd \"C:\\\\Users\\\\shuyua01\\\\Music\\\\2025\" && python convert_wav_to_flac.py)"
-    ]
-  }
+      "Bash",
+      "Read",
+      "WebSearch",
+      "WebFetch",
+      "Skill(update-config)",
+      "Skill(claude-api)",
+      "WebFetch(domain:www.discogs.com)",
+      "WebFetch(domain:www.preiserrecords.at)",
+      "WebFetch(domain:www.artistcamp.com)",
+      "WebFetch(domain:www.allmusic.com)",
+      "WebFetch(domain:melisandemusique.com)",
+      "WebFetch(domain:www.europadisc.co.uk)",
+      "WebFetch(domain:musicbrainz.org)",
+      "WebFetch(domain:www.naxos.com)",
+      "WebFetch(domain:www.prestomusic.com)",
+      "WebFetch(domain:www.sonyclassical.com)",
+      "WebFetch(domain:www.hyperion-records.co.uk)",
+      "WebFetch(domain:www.amazon.com)",
+      "WebFetch(domain:www.europadisc.co.uk)",
+      "WebFetch(domain:www.marstonrecords.com)",
+      "WebFetch(domain:tower.jp)",
+      "WebFetch(domain:www.ccmusic.com)",
+      "WebFetch(domain:ml.naxos.jp)",
+      "WebFetch(domain:)",
+      "mcp__chrome-devtools*",
+      "mcp__chrome-devtools__take_screenshot",
+      "mcp__chrome-devtools__navigate_page",
+      "mcp__chrome-devtools__list_pages",
+      "mcp__chrome-devtools__select_page",
+      "mcp__chrome-devtools__new_page",
+      "mcp__chrome-devtools__emulate",
+      "mcp__chrome-devtools__take_snapshot",
+      "mcp__chrome-devtools__evaluate_script",
+      "mcp__chrome-devtools__wait_for",
+      "mcp__chrome-devtools__fill",
+      "mcp__chrome-devtools__click"
+    ],
+    "deny": []
+  },
+  "llm_max_retries": 500000,
+  "claude_timeout_seconds": 600,
+  "retry_delay_ms": 1000,
+  "retry_backoff": 2
 }
